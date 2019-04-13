@@ -24,10 +24,13 @@ Eher so Windsurf-Einsteigerin, aber das hält ja niemanden ab! Ist der Meinung, 
 
 # Marcel
 
+TODO
 
 ![authors/avatar-768x432.jpg](../../../../../mediaLibrary/pages/info/authors/avatar-768x432.jpg "avatar-768x432.jpg")
 
 # Andre
+
+TODO
 
 | Wohnort:         | Erlangen, Germany               |
 |------------------|---------------------------------|
