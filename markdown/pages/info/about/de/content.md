@@ -143,7 +143,7 @@ Wir sind auch gespannt, ob sich jemand findet, der sich zu uns an unser Lagerfeu
 
 Falls nicht, wird uns das vermutlich trotzdem nicht davon abhalten weiter zu machen, so lange wie wir eben Lust darauf haben.
 
-Falls doch, freuen wir uns immer und überall über jegliche Art von Feedback.
+Falls doch, freuen wir uns immer und überall über jegliche Art von Feedback. Erzählt uns an unserem Lagerfeuer gerne auch was ihr so denkt. Erzählt uns auch eure Geschichten und nehmt unsere Geschichten mit auf Reisen und erzählt sie weiter.
 
 Zögert nicht und traut euch. Aber habt auch ein wenig Nachsicht mit uns, wenn wir als Amateure nicht ganz euren Vorstellungen und Wünschen entsprechen.
 
