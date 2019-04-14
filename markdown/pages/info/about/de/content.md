@@ -1,8 +1,8 @@
-![link broken](../../../../../mediaLibrary/pages/info/about/1476248710_7_1500.jpg)
+![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-1476248710_7_1500.JPG)
 
 # Über diesen Blog
 
-![link broken](../../../../../mediaLibrary/pages/info/about/564689_348778515213479_1339774773_n.jpg)
+![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-564689_348778515213479_1339774773_n.JPG)
 
 … „Verdammte scheiße, da ist endlich eine die noch offen ist.“  
 Ich setze den Blinker und biege auf die Tankstelle – irgendwo im nirgendwo mitten in der Nacht in Süd-West-Irland.
@@ -20,7 +20,7 @@ Nach dem ich erneut nichts außer Segeltaschen sehe, sage ich: „Alter, hier is
 
 Etwas zögerlich steige ich aus, hebe die Hand und sag kurz „Hi“. Der Trupp Uniformierter grüßt freundlich zurück und geht dann geschlossen in das Gebäude „einen Kaffe trinken“…
 
-![link broken](../../../../../mediaLibrary/pages/info/about/DSC04304.JPG)
+![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-DSC04304.JPG)
 
 … Ich liege im Wasser. Gerade eben, hat mich die Landung hinter der letzten Welle so richtig zerrissen.
 
@@ -31,14 +31,14 @@ Zwei Wellen später schießt ein anderer Windsurfer über eine Welle und schmett
 
 „Haaach, was für ein geiler Tag“, denke ich mir, schnappe mir mein Segel und weiter gehts …
 
-![link broken](../../../../../mediaLibrary/pages/info/about/DSC03185.JPG)
+![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-DSC03185.JPG)
 
 … „Oh man der Pub sieht aber ganz schön ausgestorben aus, wollen wir da wirklich rein? Nach Individual-Betreuung durch den Wirt ist mir jetzt heute irgendwie nicht.“
  –  „Hmm, jaa oder lass uns noch mal runter zur Bucht laufen, das zerfallene Boot da am Strand, das kann man bestimmt relativ cool mit einer Langzeitaufnahme vor der Bucht und dem Ort im Hintergrund fotografieren.
 
 3 Stunden und gefühlte 10000 Versuche später -> „Krasse scheiße, das Bild ist der Hammer und der Weg-Cider ist auch alle, lass uns zusehen dass wir ins Bett kommen …
 
-![link broken](../../../../../mediaLibrary/pages/info/about/DSC04819.JPG)
+![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-DSC04819.JPG)
 
 … Mittwoch Nachmittag, 16:00 Uhr. Die Vorhersage lässt mir einfach keine Ruhe.  
 Ich aktualisiere sie noch mal, fasse einen Entschluss und setze mich dann schnell an die Tastatur und tippe : „Hi, wie geht es euch so? Seid ihr dieses Wochenende surf-technisch auch unterwegs?“
@@ -55,7 +55,7 @@ Ich lege das Handy zur Seite – dann klingelt es wieder :
 
 Fünf Minuten später ist alles Wichtige geklärt.
 
-![link broken](../../../../../mediaLibrary/pages/info/about/08.JPG)
+![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-08.JPG)
 
 Ich suche die nächste Nummer heraus und drücke auf den grünen Höhrer :
 
@@ -73,7 +73,7 @@ Ich suche die nächste Nummer heraus und drücke auf den grünen Höhrer :
 
 Donnerstag Morgen, 2:35 Uhr : Herzlichen Willkommen in Ouddorp, na dann mal schnell ins Bett …
 
-![link broken](../../../../../mediaLibrary/pages/info/about/DSC02384.JPG)
+![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-20p-DSC02384.JPG)
 
 … Etwas demotiviert parke ich am Straßenrand. Eigentlich hatte ich mir in Irland jede Menge Wind erhofft, aber die Vorhersage sieht relativ mau aus für die nächsten Tage. Ich schlendere gemütlich zum Strand, schließlich will ich den Spot nun auch mal bei Tageslicht sehen.
 
@@ -82,7 +82,7 @@ Wellen, so sauber und lang wie ich sie wohl noch nie gesehen habe, laufen Line f
 
 Meine Güte – solche Wellen und dass vollkommen ohne Sturm, waagerechten Regen und Weltuntergangs-Stimmung auf den Straßen. Dann rastet etwas in meinem Hirn ein und ich verstehe dass ich irgendwo her dringen ein Surf-Board brauche.
 
-![link broken](../../../../../mediaLibrary/pages/info/about/07_.JPG)
+![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-20p-07_.JPG)
 
 Schnell laufe ich zum nächsten Menschen auf dem Parkplatz und frage, ob es irgendwo in der Nähe möglich sei Surf-Boards zu mieten. „Generell überhaupt kein Problem – Aber ich glaube bei den Bedingungen wirst du es schwer haben einen offenen Laden zu finden. Die werden alle selbst unterwegs sein. Aber hey – nimm doch einfach meins – ich bin für heute fertig“.
 
@@ -90,7 +90,7 @@ Ich werfe einen Blick auf das nagelneue Board, dann einen weiteren zurück zum S
 
 Auf die Frage, ob ich bei ihm ein Surf-Board leihen könnte, rennt er nur schnell in den nächsten Schuppen, drückt mir eines in die Hand und springt dann hastig in seinen Geländewagen. Als ich ihm noch nachrufe, was es den kosten solle, winkt er nur ab und nuschelt etwas von „Komm die nächsten Tage einfach mal wieder vorbei und jetzt schnell aufs Wasser mit dir“ …
 
-![link broken](../../../../../mediaLibrary/pages/info/about/DSC04167.JPG)
+![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-DSC04167.JPG)
 
 # Worum geht es hier eigentlich?
 
@@ -98,7 +98,7 @@ Auf jeden Fall geht es ums Surfen. Es geht um schöne Reisen an noch viel schön
 
 Es geht darum, wie das Wasser in einer rasenden Geschwindigkeit unter einem vorbei fliegt. Und es geht darum, wie das Kitzeln der Sonnenstrahlen einen Morgens langsam aus dem Schlaf lockt.
 
-![link broken](../../../../../mediaLibrary/pages/info/about/1518380076_3_1500.jpg)
+![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-1518380076_3_1500.JPG)
 
 Vielleicht geht es auch einmal um ganz andere Dinge.   Vielleicht auch um Dinge, die rein überhaupt garnichts mit all dem zuvor genannten zu tun haben.
 
@@ -108,7 +108,7 @@ Ziemlich sicher, geht es ziemlich viel ums Fotografieren.   Vielleicht auch mal 
 
 Ich glaube, es geht hier auch darum ein paar neue Dinge auszuprobieren. Es geht darum bestimmte Hobbies und Vorlieben  miteinander zu verknüpfen und zu schauen wie man in diesen besser werden kann.
 
-![link broken](../../../../../mediaLibrary/pages/info/about/1476248710_4_1500.jpg)
+![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-1476248710_4_1500.JPG)
 
 Es soll auch darum gehen, zu zeigen wie man das ein oder andere erreicht hat.  
 Es geht ziemlich sicher auch darum, dass nicht immer nur alles wie geplant läuft und mancher Weg zum Erfolg nicht immer einfach ist.
@@ -118,13 +118,13 @@ Gerade die Organisation um an den schönsten Orten der Welt, die schönsten Ding
 
 Um genau diese Dinge soll es daher auch gehen und an dieser Stelle soll kein Blatt vor den Mund genommen werden. Mit einer guten Anleitung oder ein paar Tipps ist manches nämlich manchmal doch einfacher als man denkt.
 
-![link broken](../../../../../mediaLibrary/pages/info/about/1478366011_5_1500.jpg)
+![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-1478366011_5_1500.JPG)
 
 Außerdem geht es auch noch um etwas ganz anderes. Es geht darum, wie wir in unserem täglichen Arbeitswahn schnell den Blick für das Wesentliche und Schöne verlieren.
 
 Und viel mehr als das, soll es vermutlich darum gehen, genau diesem Problem möglichst elegant aus dem Weg zu gehen.
 
-![link broken](../../../../../mediaLibrary/pages/info/about/100_4166.JPG)
+![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-100_4166.JPG)
 
 Ist es notwendig, dass wir die schönsten Jahre unseres Lebens damit verbringen für die Interessen anderer Leute zu arbeiten um am Ende, wenn wir nicht mehr können, von diesem System wieder ausgepuckt zu werden?
 
@@ -132,7 +132,7 @@ Ist es notwendig, dass wir während wir genau das tun, die Menschen und Dinge di
 
 Vielleicht ist es notwendig, vielleicht auch nicht. Um diese Frage und wie man das Schöne möglichst gut mit dem Notwendigen verknüpft, wird es sehr wahrscheinlich auch gehen.
 
-![link broken](../../../../../mediaLibrary/pages/info/about/DSC02123.JPG)
+![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-DSC02123.JPG)
 
 Wir, die Geschichten-Erzähler von STORMY-STORIES.SURF freuen uns auf unser neues Projekt.
 
@@ -146,7 +146,7 @@ Falls doch, freuen wir uns immer und überall über jegliche Art von Feedback.
 
 Zögert nicht und traut euch. Aber habt auch ein wenig Nachsicht mit uns, wenn wir als Amateuere nicht ganz euren Vorstellungen und Wünschen entsprechen.
 
-![link broken](../../../../../mediaLibrary/pages/info/about/1478366011_4_1500.jpg)
+![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-1478366011_4_1500.JPG)
 
 Auch möchten wir euch auffordern, wenn ihr etwas zu sagen habt, dabei niemanden direkt anzugreifen und freundlich mit einander um zu gehen.
 
@@ -156,4 +156,4 @@ Wenn ihr mit diesen Grundregeln des guten Geschmacks keine Probleme habt, freuen
 
 Aloha.
 
-![link broken](../../../../../mediaLibrary/pages/info/about/1484553189_1_1500.jpg)
+![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-1484553189_1_1500.JPG)
