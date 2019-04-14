@@ -101,8 +101,7 @@ Es geht darum, wie das Wasser in einer rasenden Geschwindigkeit unter einem vorb
 
 ![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-1518380076_3_1500.JPG)
 
-Vielleicht geht es auch einmal um ganz andere Dinge.   Vielleicht auch um Dinge, die rein überhaupt garnichts mit all dem zuvor g
-Genannten zu tun haben.
+Vielleicht geht es auch einmal um ganz andere Dinge.   Vielleicht auch um Dinge, die rein überhaupt garnichts mit all dem zuvor Genannten zu tun haben.
 
 In aller Regel geht es aber wahrscheinlich immer um stürmische Geschichten, Ideen und Gedanken. Wobei „stürmisch“ vermutlich in den stürmischsten Arten und Weisen interpretiert werden wird und auch öfters rein garnichts mit bewegter Luft oder Wasser zu tun haben könnte.
 
@@ -140,7 +139,7 @@ Wir, die Geschichten-Erzähler von STORMY-STORIES.SURF freuen uns auf unser neue
 
 Bereits jetzt sind wir begeisterte Amateur-Surfer, -Fotografen und -Geschichtenerzähler und sind gespannt, wie und ob wir uns in manchen dieser Dinge verbessern können.
 
-Wir sind auch gespannt, ob sich jemand findet, der sich zu uns an unser Lagerfeuer am Strand setzt und unseren Geschichten zuhören will. (und eigene beitragen /teilen?)
+Wir sind auch gespannt, ob sich jemand findet, der sich zu uns an unser Lagerfeuer am Strand setzt und unseren Geschichten zuhören will.
 
 Falls nicht, wird uns das vermutlich trotzdem nicht davon abhalten weiter zu machen, so lange wie wir eben Lust darauf haben.
 
