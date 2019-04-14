@@ -2,7 +2,7 @@
 
 # Dahmeshöved
 
-![link broken](../../../../../../mediaLibrary/posts/2018/balticSea-Ostsee/03-17-dahmeshoeved/windsurf-stormy-stories-surf-travel-blog-balticSea-Ostsee-03-17-dahmeshoeved-WM-35p-02.JPG)
+![link broken](../../../../../../mediaLibrary/posts/2018/balticSea-Ostsee/03-17-dahmeshoeved/windsurf-stormy-stories-surf-travel-blog-balticSea-Ostsee-03-17-dahmeshoeved-WM-25p-02.JPG)
 
 35 Knoten sind 35 Knoten…  
 Da kann man wohl nix dran rütteln..
