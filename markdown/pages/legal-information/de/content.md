@@ -1,6 +1,6 @@
-# Legal Information
+# Impressum
 
-Information referring to § 5 TMG (Germany)
+Angaben gemäß § 5 TMG
 
 Winfried Sturm  
 c/o AutorenServices.de  
@@ -9,8 +9,8 @@ Birkenallee 24
 
 E-Mail: info@stormy-stories.surf
 
-All the content of this page is licensed with the Creative Commons license CC BY-NC-SA. For more information please also have a look at : https://creativecommons.org/ und https://en.wikipedia.org/wiki/Creative_Commons .
+Alle Materialien auf dieser Seite sind unter der Creative Commons Lizenz CC BY-NC-SA veröffentlicht. Für weitere Hinweise siehe auch : https://creativecommons.org/ und https://de.wikipedia.org/wiki/Creative_Commons .
 
 ![link broken](../../../../mediaLibrary/pages/legal-information/Cc-by-nc-sa_euro_icon.png)
 
-For more information referring to our privacy policy and other legal informations click here.
+Für weitere Infos zu Datenschutzerklärung & Haftungsausschluss klicke hier.
