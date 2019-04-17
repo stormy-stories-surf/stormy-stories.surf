@@ -2,7 +2,7 @@
 
 <div class="widget-content">
 
-      <h3 class="widget-title">Abonniere unseren Newsletter</h3>
+      <h3 class="widget-title">Subscribe to our e-mail newsletter</h3>
 
   <div id="mailpoet_form_1" class="mailpoet_form mailpoet_form_widget">
     <style type="text/css">.mailpoet_hp_email_label{display:none;}#mailpoet_form_1 .mailpoet_form {  }
@@ -23,15 +23,14 @@
       <input name="endpoint" value="subscribers" type="hidden">
       <input name="mailpoet_method" value="subscribe" type="hidden">
 
-      <label class="mailpoet_hp_email_label">Bitte dieses Feld leer lassen<input name="data[email]" type="email"></label><p class="mailpoet_paragraph">Du willst benachrichtigt werden, wenn wir einen neuen Beitrag veröffentlichen? Dann trage dich hier in unsere Mailing – Liste mit ein.</p>
-<p class="mailpoet_paragraph"><label class="mailpoet_text_label">E-Mail <span class="mailpoet_required">*</span></label><input class="mailpoet_text" name="data[form_field_ZW1haWw=]" title="E-Mail" value="" data-automation-id="form_email" data-parsley-required="true" data-parsley-minlength="6" data-parsley-maxlength="150" data-parsley-error-message="Bitte gib eine gültige E-Mail-Adresse ein." data-parsley-required-message="Dieses Feld wird benötigt." type="email"></p>
-<p class="mailpoet_paragraph"><input class="mailpoet_submit" value="Abonnieren!" data-automation-id="subscribe-submit-button" type="submit"><span class="mailpoet_form_loading"><span class="mailpoet_bounce1"></span><span class="mailpoet_bounce2"></span><span class="mailpoet_bounce3"></span></span></p>
+      <label class="mailpoet_hp_email_label">Please keep this value empty<input name="data[email]" type="email"></label><p class="mailpoet_paragraph">Do you want to receive a notification whenever we are publishing a new post? In this case please add your e-mail-address to our mailing-list.</p>
+<p class="mailpoet_paragraph"><label class="mailpoet_text_label">E-Mail <span class="mailpoet_required">*</span></label><input class="mailpoet_text" name="data[form_field_ZW1haWw=]" title="E-Mail" value="" data-automation-id="form_email" data-parsley-required="true" data-parsley-minlength="6" data-parsley-maxlength="150" data-parsley-error-message="Please enter a valid e-mail address" data-parsley-required-message="This value is mandatory" type="email"></p>
+<p class="mailpoet_paragraph"><input class="mailpoet_submit" value="Subscribe!" data-automation-id="subscribe-submit-button" type="submit"><span class="mailpoet_form_loading"><span class="mailpoet_bounce1"></span><span class="mailpoet_bounce2"></span><span class="mailpoet_bounce3"></span></span></p>
 
       <div class="mailpoet_message">
-        <p class="mailpoet_validate_success" style="display:none;">Hurra! Du hast dich auf unserer Website angemeldet.
-Schon bald wirst du automatisch per Mail über unsere neuen Beiträge benachrichtigt.
+        <p class="mailpoet_validate_success" style="display:none;">Hurra! You subscribed to our e-mail newsletter. Very soon you will receive automatical notification-mails for every new post.
 
-Aber vorher bestätige bitte noch einmal dein Abonnement. Hierzu findest du eine neue Mail mit einem Aktivierungslink in deinem Posteingang.
+But before this can work you have to confirm your registration. For this you can find an activation-link in the e-mail which should now or at least very soon arrive in the inbox of your mail-account.
         </p>
         <p class="mailpoet_validate_error" style="display:none;">        </p>
       </div>
