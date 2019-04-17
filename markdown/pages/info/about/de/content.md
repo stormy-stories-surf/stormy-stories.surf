@@ -2,8 +2,7 @@
 
 # Über diesen Blog
 
-![link broken](../../../../../mediaLibrary/pages/info/abo      convert ${WATERMARK} -resize ${VECTOR} ${SIZED_WATERMARK}
-    elseut/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-564689_348778515213479_1339774773_n.JPG)
+![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-564689_348778515213479_1339774773_n.JPG)
 
 … „Verdammte Scheiße, da ist endlich eine die noch offen ist.“  
 Ich setze den Blinker und biege auf die Tankstelle – irgendwo im Nirgendwo mitten in der Nacht in Süd-West-Irland.
