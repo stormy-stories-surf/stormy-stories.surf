@@ -4,6 +4,7 @@
 
 ![09_13_cuxhaven-sahlenburg-irma/02.jpg](../../../../../../mediaLibrary/posts/2017/northSea/09_13_cuxhaven-sahlenburg-irma/02.jpg "02.jpg")
 
+On the forecast maps 
 Die Wetterkarte zeigte längere Zeit schon ein richtig schönes stabiles "Stürmchen".
 Mit Blick auf dem Kalender wurde dann aber schnell klar, dass ein Tag Urlaub wohl nicht drin sein würde.
 Ein paar Überstunden abfeiern half dann aber immerhin um noch einen Spontan-Trip nach Sahlenburg möglich zu machen.

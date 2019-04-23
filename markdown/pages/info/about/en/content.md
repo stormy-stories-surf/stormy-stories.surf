@@ -1,35 +1,35 @@
 ![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-1476248710_7_1500.JPG)
 
-# Über diesen Blog
+# About this Blog
 
 ![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-564689_348778515213479_1339774773_n.JPG)
 
-… „Holy shit, there is one which is still open.“  
-TODO Ich setze den Blinker und biege to the gaz-station – somewhere in the no-where at the mid of the night in south-west Ireland.
+… „Holy shit, there is finally one that is still open.“  
+I activate the indicator and turn left to the gas station – somewhere in the nowhere in the middle of the night in south-west Ireland.
 
-Ich schaue links rüber zur Tanksäule. Alles was ich sehe ist ein hoch gestapelter Haufen Segel.  
-„Äähm sach mal, wie viel Platz ist da noch? Stehe ich schon nah dran, oder muss ich noch weiter?“ „Ne passt, ein kleines Stück vielleicht noch – Ja genau, reicht.“
+I turn my head to the left to have a look at the petrol pump. But the only thing I see is a stacked pile of windsurfing-sails.
+"Uhhm, tell me, how much space is there? Am I already close, or do I have to go further?
+„No it fits, a little bit maybe - Yeah, that's enough.“
 
-Okay – ich schnalle mich ab und drehe mich zur Tür. Ein Polizeiauto fährt an uns vorbei und parkt neben einem weiteren. Daneben steht ein weiteres Polizeiauto, daneben ein weiteres und daneben noch ein paar weitere.
+Okay – I buckle up and turn to the door. A police car drives past us and parks nearby next to another police-car. Next to it is another police-car, next to it another and next to it a few more.
 
-Die dazugehörigen Fahrer stehen zehn Meter entfernt und schauen interessiert zu uns herüber.  
-Ich denke kurz an unseren winzigen Mietwagen, der überladener kaum sein könnte. In jeder Ecke bis zum Dach vollgestopft mit Windsurf-Equipment. Das Dach selbst eingedrückt unter der Last der Boards die sich darauf stapeln.
+The associated drivers are ten meters away and look at us interested.
+I think briefly about our tiny rental car, which could hardly be more overloaded. Every part of the car up the roof crammed with windsurf equipment. The roof dented by the weight of of the boards which are stacked on it.
 
-Ich drehe mich wieder zurück, um mit meinem Bruder einen bedeutenden Blick zu tauschen.  
-Nach dem ich erneut nichts außer Segeltaschen sehe, sage ich: „Alter, hier ist alles voll mit Polizei. Lass uns zusehen, dass wir hier schnell wieder weg kommen“.
+I turn back to exchange a meaningful look with my brother.
+After I again see nothing except windsurf-sail-bags, I say : "Damn, there is so much police. Let's see that we get away quickly."
 
-Etwas zögerlich steige ich aus, hebe die Hand und sag kurz „Hi“. Der Trupp Uniformierter grüßt freundlich zurück und geht dann geschlossen in das Gebäude „einen Kaffe trinken“ …
+A little hesitantly, I get out, raise my hand and say "Hi" for a moment. The squad of uniformed greets back friendly and then enters the building "to drink a coffee". ...
 
 ![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-DSC04304.JPG)
 
-… Ich liege im Wasser. Gerade eben hat mich die Landung hinter der letzten Welle so richtig zerrissen.
+... I am lying in the water. Just now the landing after this last wave really tore me apart.
 
-Trotzdem lächle ich und freue mich. Die Sonne scheint auf mich herab.  
-Die Welle, die mich gerade noch abgeräumt hat, bricht einige Meter entfernt und die Gischt rieselt auf mich herab. Von hier aus zum Strand blickend sieht es wirklich beeindruckend aus, mit welcher Kraft die Wellen nacheinander nach vorne überkippen und wie die Gischt hinter ihr vom Wind nach oben gerissen wird.
+Nevertheless I smile and feel happy. The sun is shining down on me. The wave which just recently crashed me, breaks a few meters away and spray trickles down on me. Looking from here to the beach, it looks really impressive, with what force the waves overturn one after another forward and how the spray behind it is torn up by the wind. Just overwhelming.
 
-Zwei Wellen später schießt ein anderer Windsurfer über eine Welle und schmettert einen perfekten Backloop in die Luft und dann neben mir ins Wasser. Wieder rieselt das Wasser auf mich herab.
+Two waves later another windsurfer shoots over a wave and smashes a perfect backloop into the air before smashing next to me into the water. Again water trickles down on me.
 
-„Haaach, was für ein geiler Tag“, denke ich mir, schnappe mir mein Segel und weiter gehts …
+"Haaach.. what an awesome day", I think, grab my sail and go on...
 
 ![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-DSC03185.JPG)
 
