@@ -63,4 +63,8 @@ Seit gefühlten Stunden stehen wir an der Passkontrolle in Marrakesch. Hier sche
 
 ---------------------------------------------------------------
 
-Draußen vor dem Flughafen erwartet uns unser Taxi-Fahrer mit einem Namens-Schild. 
+Draußen vor dem Flughafen erwartet uns unser Taxi-Fahrer mit einem Namens-Schild. Er ist einer von ca. 150 Menschen mit einem Schild in der Hand. Aber wie immer in solchen Ländern sind alle vollkommen entspannt und wir finden ihn ohne Probleme. Die Fahrt durch die Medina von Marrakesch ist dann sehr interessant und abendteuerlich. Bis zu unserer Unterkunft war es aber im Grunde relativ einfach - eigentlich nur zwei mal Rechts abbiegen, dann abwechselnd vierhundert mal links-recht-links abbiegen und hin und wieder - am besten ohne einen Mofa-Fahrer zu überfahren - durch superenge Gassen und Torbögen die vermutlich ursprünglich eher für Esel und Pferde gedacht waren. Danach dann noch zwei mal links, das Auto parken und zufuß die letzten zwei-hundert Meter durch die ganz schmalen Gassen. Nach Übergabe von etwas Trinkgeld verabschiedeten wir uns von unserem Taxi-Fahrer und ließen weniger später erschöpft in unsere Betten fallen. 
+
+----------------------------------------------------
+
+18. April 2019 - irgendwann nach dem Aufwachen, bzw. kurz vor Ende des Frühstücks.
