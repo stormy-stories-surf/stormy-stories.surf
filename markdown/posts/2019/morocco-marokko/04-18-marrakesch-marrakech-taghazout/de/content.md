@@ -25,8 +25,8 @@ Man erzählte mir von dem vollkommen wahnsinnig windsurfenden Local und Windsurf
 alles andere in seinen Schatten stellt.
 Damals, das weiß ich noch, hat mich diese Geschichte ziemlich angefixt.
 
-Immer mal wieder in den letzten Jahren tauchten dann Videos im Netz auf, wie die Moulay Locals Down-The-Line gigantische super cleanen Wellenberge entlang schossen. Diese Bilder im Kopf fiel es mir vor etwa anderhalb Jahren
-relativ schwer die zwischenzeitlichen Reisepläne zum Worldcup nach Marokko abzulehnen. In diesem Jahr sollte es für mich nach Pozo gehen, da war ich mir sicher. Als dann die Videos und Bilder des Worldcup um die Welt gingen,
+Immer mal wieder in den letzten Jahren tauchten dann Videos im Netz auf, wie die Moulay Locals Down-The-Line gigantische super cleanen Wellenberge entlang schossen. Mit diesen Bildern im Kopf fiel es mir vor etwa anderhalb Jahren
+relativ schwer die zwischenzeitlichen Reisepläne zum Worldcup nach Marokko abzulehnen. In diesem Jahr sollte es für mich nach Pozo gehen, da war ich mir sicher. Als dann die Videos und Bilder des Worldcups um die Welt gingen,
 war ich von meiner Entscheidung nicht mehr ganz so überzeugt. Haushohe Wellen ließen den Worldcup zwischenzeitlichen pausieren, da an Windsurfen für große Teile der Windsurf-Welt-Elite nicht zu denken war.
 Boujmaa, der Local-Hero und Organisator des Worldcups jedoch zeigte dann der ganzen Welt einmal mehr, was Menschen möglich ist, und verschob die Grenzen des Möglichen, zumindest meiner Meinung nach, in andere Sphären.
 
@@ -44,3 +44,23 @@ Gefühl, dass ich es am liebsten einfach ein bisschen auf mich zukommen lassen w
 Da jedoch auch ich das Gefühl nicht los wurde, dass ein bisschen Vorbereitung nicht schaden könnte,
 wühlten wir uns ein bisschen durch typische Reise-Informationen. Die empfohlenen Impfungen
 Hepatitis A, Hepatitis B und Typhus fanden ihren Weg in unsere Blutbahnen und der obligatorische Reise-Führer und die überlebenswichtige Straßenkarte wurden angeschafft.
+
+Einigermaßen gut vorbereitet, kam es nun zu den etwas schwierigeren Fragen. Mietwagen groß oder klein? Mit Allrad und dann ab durch die Wüste Oder lieber schön klein und günstig und dann entspannt auf befestigten Straßen die Küste entlang? Irgendwie hörte sich das alles ganz gut an. Aber von dieser Frage hing vor allem auch noch eine der schwierigsten Entscheidungen ab : Windsurf-Equipment mitnehmen oder vor Ort mieten? Aus eigener Erfahrung wissen wir mittlerweile, dass beides einen Urlaub ganz schön auf die Probe stellen kann.
+Bei traumhaften Bedingungen ohne Material und ohne Surf-Verleih an einem traumhaften Strand zu stehen ist in etwa ziemlich genau so scheiße wie, wenn das Surf-Board wochenlang wegen dem zu kleinen Miet-Bulli das Bett und die Küchenzeile blockiert. Weitere Recherchen zeigten mir, dass man die Anzahl der Windsurf-Verleih-Stationen in Marokko ziemlich genau an einer Hand abzählen kann. Das klang für mich alles andere als verlockend. Auf der anderen Seite jedoch, befand sich mein 90-Liter Wave-Board aktuell auch eher in einem semi-einsatzbereiten Zustand und gerade die ersten zwei Nächte im Zentrum Marrakeschs ohne eigenes Auto und vermutlich ohne große Möglichkeiten das Equipment irgendwo sinnvoll zu lagern, sprachen eindeutig dagegen.
+Wenige Tage vor der Abreise fiel die Entscheidung dann gegen das eigene Material. Es war "hart" aber es war vor allem auch eine Entscheidung für mehr Entspannung und gegen zu viel Stress. Wenn es sich anbieten sollte, sollte es eben aufs Wasser gehen und wenn nicht dann eben nicht. Entspannt einfach mal nichts zu machen ist im Grunde ja auch nicht all zu verkehrt. Hiermit fiel dann auch die Entscheidung für einen kleinen günstigeren Mietwagen. Nach ein paar Recherchen entschieden wir uns dann auch gegen Allrad.
+Den zwei oder teilweise dreifachen Preis für etwas zu zahlen, von dem man nicht weiß ob man es wirklich braucht, passte uns nicht ganz so in den Kram. Das wiederum bedeutete allerdings auch, dass wir uns auch  gegen einen Offroad-Trip durch die Wüste entschieden. Gegen die Wüste und für mehr Entspannung. Wenn die Wüste zu uns kommen wollte, dann würde sie das schon tun und dann würden wir sicherlich auch dafür eine Lösung finden.
+
+------------------------------------------------------------
+
+Wir schreiben den 17. Mai 2019. Gerade noch saßen wir auf der Arbeit, aber jetzt sitzen wir mit Sack und Pack in der wunderbaren Bus-Direkt-Verbindung von Erlangen zum Nürberger Flughafen.
+Um 21 Uhr soll es dann los gehen und unsere drei Koffer und drei Rucksäcke sind auch schon total gespannt auf den Flug. Zum bersten gespannt könnte man fast sagen. Und leichte Gewichts-Probleme haben sich auch. Aber naja, was soll man sagen, es war keine leichte Aufgabe Kleidung und Bücher für zweieinhalb Wochen, Handtücher & co., Neopren-Anzüge, Trapez, Dachgepäck-Träger, Kamera-Ausrüstung inkl. großem Tele-Objektiv und Stativ und Laptop in zwei Handgepäck-Koffer, einen 20kg-Trolli und drei kleine Rucksäcke zu pressen, aber am Ende steht man dann doch immer relativ stolz davor.
+Solange zumindest, bis es an der Sicherheits-Kontrolle wieder "Auspacken" heißt.
+
+-------------------------------------------------------------
+
+18. Mai. 2019 kurz nach Mitternacht.
+Seit gefühlten Stunden stehen wir an der Passkontrolle in Marrakesch. Hier scheint man auf besondere Sorgfalt des Kontrollierens jedes einzelnen Buchstabens im Reisepass wert zu legen. Also zumindest geht das manchen Grenz-Beamten so. Andere wiederum kompensieren ihre zu schnelle Arbeitsweise durch ausschweifende Telefon-Gespräche mit der Familie oder wem auch immer oder anderen interessanten Aufgaben wie das Abschreiben iwelcher scheinbar sinnlosen Zahlen aus dem eigenen Smartphone. Hin und wieder unterbricht sich mein Bearbeiter dann aber doch und widmet sich meinem, wie sein Blick mir sagt, extrem spannenden Visum.
+
+---------------------------------------------------------------
+
+Draußen vor dem Flughafen erwartet uns unser Taxi-Fahrer mit einem Namens-Schild. 
