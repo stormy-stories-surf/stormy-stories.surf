@@ -51,7 +51,7 @@ Zwei irische Wochen später hatte ich die längsten und saubersten Wellen meines
 
 Auf der zwei wöchigen Reise quer durchs Land hatte uns der Regen vielleicht zwei oder dreimal kurz begrüßt und war dann relativ schnell wieder von der Sonne vertrieben worden.
 
-Ein Jahr später sollte es dann im Herbst 10 Tage lang irgendwo in die Welle gehen. Diesmal sollte es als Geschwister-Surf-Urlaub zu zweit losgehen. Die Frage war nur wohin. Tagelang checkten wir immer wieder alle möglichen Spotguides, Flugpläne, Windstatistiken. Aber am Ende fielen wir immer wieder auf Irland zurück.
+Ein Jahr später sollte es dann im Herbst 10 Tage lang irgendwo in die Welle gehen. Diesmal sollte es als Geschwister-Surf-Urlaub zu zweit losgehen. Die Frage war nur: wohin? Tagelang checkten wir immer wieder alle möglichen Spotguides, Flugpläne, Windstatistiken. Aber am Ende fielen wir immer wieder auf Irland zurück.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-05-arrival-ankunft-brandon-bay/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-05-arrival-ankunft-brandon-bay-WM-35p-DSC08839.JPG)
 
@@ -60,7 +60,7 @@ Irland bietet für eine Windsurf – Reise eine ganze Menge Nachteile. Es gibt w
 Kurze Zeit später war der Urlaub genehmigt und die Flüge gebucht.  
 Hier wiederum wurden uns allerdings relativ schnell auch die Vorteile eines Urlaubs im November in Irland klar : „Da will einfach keine Sau hin..“ – so viel zumindest schienen die Flugpreise uns zu verraten.
 
-Wir hingegen waren uns sicher. Wir wollten auf jeden Fall hin. Mit jeder Woche die verstrich ein kleines bisschen mehr. In den Wochen vor dem Abflug überbot jede Vorhersage die vorherige. Anderhalb bis zwei Monate tobte ein Sturm nach dem anderen über die Insel. Bei diesen Aussichten war es dann tatsächlich auch verkraftbar, dass wir durch die Urlaubsvorgaben unserer Jobs statt dem geplanten Traumflugpreis von 30€, 100€ pro Person für Hin und Rückflug bezahlten.
+Wir hingegen waren uns sicher. Wir wollten auf jeden Fall hin. Mit jeder Woche die verstrich ein kleines bisschen mehr. In den Wochen vor dem Abflug überbot jede Vorhersage die vorherige. Anderthalb bis zwei Monate tobte ein Sturm nach dem anderen über die Insel. Bei diesen Aussichten war es dann tatsächlich auch verkraftbar, dass wir durch die Urlaubsvorgaben unserer Jobs statt dem geplanten Traumflugpreis von 30€, 100€ pro Person für Hin und Rückflug bezahlten.
 
 <p float="left">
   <img src="../../../../../../mediaLibrary/posts/2017/ireland-irland/11-05-arrival-ankunft-brandon-bay/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-05-arrival-ankunft-brandon-bay-WM-35p-DSC08860.JPG" width="32%" />
@@ -116,6 +116,6 @@ Gestern Nacht hatten wir uns auf der Suche nach einer Tankstelle immer wieder ve
 
 Nach einiger Zeit wachte mein Bruder auf. Wir genossen die Ruhe und die bequemen Betten und unterhielten uns dann darüber, wann wir das letzte mal eine solche Stille erlebt hatten. Im täglichen Arbeitsstress und dem hektischen deutschen Leben schien das schon lange her zu sein. Dann ging es zum Frühstück. Wir bekamen den besten Platz direkt am Fenster und hatten den direkten Blick auf den Storm-Chase-Spot „Hell’s Gate“. Man konnte die Größe der Wellen nicht richtig einschätzen. Aber allzu groß schienen sie nicht zu sein. Da für den heutigen Tag aber auch keinerlei Wind angesagt war, ließen wir uns Zeit und genossen erst einmal Spiegelei und Bacon.
 
-Anschließen erkundeten wir zu Fuß die kleine Landzunge „Maharees“. Der Spot Hell’s Gate zeigte bei Ebbe, dann auch den Grund für seinen vielversprechenden Namen. Hier ragten mannshohe zerklüftete Felsen in den merkwürdigsten Formationen vom Grund nach oben. Einer brutaler als der Nächste.
+Anschließend erkundeten wir zu Fuß die kleine Landzunge „Maharees“. Der Spot Hell’s Gate zeigte bei Ebbe, dann auch den Grund für seinen vielversprechenden Namen. Hier ragten mannshohe zerklüftete Felsen in den merkwürdigsten Formationen vom Grund nach oben. Einer brutaler als der Nächste.
 
 Am Nachmittag erkundeten wir dann schon einmal alle üblichen Spots und fuhren über den Connor’s Pass nach Dingle und von dort aus die malerisch schöne Küstenstraße Slea Head Drive entlang, die einmal rund um die westlichsten Zipfel der Dingle-Peninsula führt.
