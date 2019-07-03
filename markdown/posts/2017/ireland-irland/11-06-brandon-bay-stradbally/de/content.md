@@ -43,7 +43,7 @@ Zurück am Spot schienen die Bedingungen etwas besser geworden zu sein. 3.7 schi
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09060.JPG)
 
-Wir waren komplett alleine an einem Kilometer langen Strand an dem man das Ende der perfekten parallelen Lines oft in der Ferne nicht erkennen konnte. Fast ein bisschen unwirklich, gerade wenn man sich dann einmal an die überquellenden Parkplätze der Ostsee zurückerinnert. Und das bei Onshore-Wind und kleinen sogenannten 'Wellen'.
+Wir waren komplett alleine an einem mehrere Kilometer langen Strand an dem man das Ende der perfekten parallelen Lines oft in der Ferne nicht erkennen konnte. Fast ein bisschen unwirklich, gerade wenn man sich dann einmal an die überquellenden Parkplätze der Ostsee zurückerinnert. Und das bei Onshore-Wind und kleinen sogenannten 'Wellen'.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09150.JPG)
 
