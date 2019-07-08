@@ -2,6 +2,13 @@
 
 # Irland 2017 : Magheroarty Beach I
 
+Die Fahrt von Mullaghmore weiter nach Magheroarty führte uns durch eine wunderschöne und teilweise vollkommen verlassene Landschaft. Von Donegal aus wählten wir zwar erst einmal den Weg über die Autobahn N15 und vorbei an Ballybofey und Drumkeen um ein bisschen Zeit zu sparen und nicht mitten in der Nacht nach einer Unterkunft suchen zu müssen. Von Drumkeen ging es dann allerdings doch wieder über die Landstraße entlang von Church Hill, nach Lossett, durch den Glenveagh National Park nach Roshine und dann letztendlich nach Gortahork.
+Von Gortahork aus fuhren wir erst einmal weiter in Richtung Mín Lárach, den Ort auf höhe des Magheroarty Beach. Hier schien jedoch alles relativ dunkel und ausgestorben, so dass wir uns schnell entschieden unser Glück an diesem regnerischen Abend lieber in Gortahork zu probieren.
+Hier hatten wir sogar ein Hotel gesehen, dass aber auf den ersten Blick nicht gerade günstig aussah. Zuerst einmal war jedoch der lokale Supermarkt unser Anlauf-Punkt. Hier schien noch ordentlich etwas los zu sein und so fragten wir an der Kasse nach einem Bed & Breakfast in der Nähe.
+Mit der typisch irischen Lässigkeit verwies und die Kassiererin direkt an eine Frau gerade dabei war den Laden zu verlassen. Sie würde uns voraus fahren und zeigen wo wir es probieren sollten.
+Keine 500 Meter später blinkte das Auto vor uns, öffnete die Fensterscheibe und zeigte auf ein Haus auf der rechten Straßenseite.
+
+
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-09-magheroarty-beach-donegal-I-WM-35p-DSC09728.jpg)
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-09-magheroarty-beach-donegal-I-WM-35p-DSC09744.jpg)
