@@ -69,6 +69,7 @@ Einige Meter weiter die Straße entlang standen einige weitere Autos, einige Men
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-07-spanish-point-cliffs-of-moher-mullaghmore/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-07-spanish-point-cliffs-of-moher-mullaghmore-WM-35p-DSC09707.jpg)
 
-Und dann sahen wir auch die Wellen. Zwar war es etwas neblig und ein wenig regnerisch draußen, jedoch konnte man trotzdem hinter einigen schmerzhaft aussehenden Felsen zwei saubere Wellen an den Strand laufen sehen. Auf den ersten Blick sah alles sehr hamlos und klein aus, doch um so näher wir kamen umso klarer wurde uns, das die kleinen schwarzen Punkte im Wasser wohl Menschen sein mussten. Gigantisch waren die Wellen zwar nicht, jedoch ziemlich sicher 3 Meter hoch.
+Und dann sahen wir auch die Wellen. Zwar war es etwas neblig und ein wenig regnerisch draußen, jedoch konnte man trotzdem hinter einigen schmerzhaft aussehenden Felsen zwei saubere Wellen an den Strand laufen sehen. Auf den ersten Blick sah alles sehr hamlos und klein aus, doch um so näher wir kamen umso klarer wurde uns, das die kleinen schwarzen Punkte im Wasser wohl Menschen sein mussten. Gigantisch waren die Wellen zwar nicht, jedoch ziemlich sicher 3 Meter hoch oder sogar ein Stück darüber. 
+Beeindruckt, aber gleichzeitig auch nicht gerade scharf darauf hier weiter nass zu regnen setzten wir uns schnell wieder ins Auto und traten den Rest unserer Reise an.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-07-spanish-point-cliffs-of-moher-mullaghmore/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-07-spanish-point-cliffs-of-moher-mullaghmore-WM-35p-DSC09710.jpg)
