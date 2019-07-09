@@ -40,38 +40,55 @@ Als wir unser Zuhause für die nächsten Tage dann von Innen sahen, staunten wir
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-09-magheroarty-beach-donegal-I-WM-35p-DSC09766.jpg)
 
 Aber jetzt hieß es erst mal die weitere Gegend zu erkunden. Weiter im Westen sollte es noch einen weiteren Surf-Spot namens "Bloody Foreland" geben und diesen galt es nun zu finden.  
-Wir hörten einen spannenden Podcast über die Gesellschaft und das Leben in Saudi-Arabien und anderen arabischen Ländern (https://cre.fm/cre212-saudi-arabien) und fuhren durch die Nord-West-Irische Idylle. Eine schmale kurvige Straße führte durch ein Nichts außer grün-brauner Wiesen. Nach kurzer Zeit hatten wir das sogenannte Bloody Foreland erreicht. Diese Gegend hier hat ihren etwas blutigen Namen allerdings nicht wegen einer sagenumwobenen Schlacht in der Vergangenheit, sondern wegen der Rotfärbung der Steine bei Sonnenuntergang.
-Unser Meinung nach hätte allerdings auch der Ein - und Ausstieg an diesem Spot Namensgeber für diesen Ort sein können. Für uns sah das Ganze jedenfalls nicht besonders einladend aus und so entschieden wir uns wieder zurück an den Magheroarty Beach zu fahren.
+Wir hörten einen spannenden Podcast über die Gesellschaft und das Leben in Saudi-Arabien und anderen arabischen Ländern (https://cre.fm/cre212-saudi-arabien) und fuhren durch die Nord-West-Irische Idylle. Eine schmale kurvige Straße führte durch ein Nichts außer grün-brauner Wiesen.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-09-magheroarty-beach-donegal-I-WM-35p-DSC09773.jpg)
 
-In Magheroarty sah es mittlerweile etwas besser aus. Der Wind schien zwar immer noch an der unteren Grenze zu sein, die Wellen jedoch hätten schöner kaum sein können.
-Wir parkten unser Auto im großen Parkplatz des Hafens und erkundeten zufuß die Gegend.
+Nach kurzer Zeit hatten wir das sogenannte Bloody Foreland erreicht. Diese Gegend hier hat ihren etwas blutigen Namen allerdings nicht wegen einer sagenumwobenen Schlacht in der Vergangenheit, sondern wegen der Rotfärbung der Steine bei Sonnenuntergang.
+Unser Meinung nach hätte allerdings auch der Ein - und Ausstieg an diesem Spot Namensgeber für diesen Ort sein können. Für uns sah das Ganze jedenfalls nicht besonders einladend aus und so entschieden wir uns wieder zurück an den Magheroarty Beach zu fahren.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-09-magheroarty-beach-donegal-I-WM-35p-DSC09780.jpg)
+
+In Magheroarty sah es mittlerweile etwas besser aus. Der Wind schien zwar immer noch an der unteren Grenze zu sein, die Wellen jedoch hätten schöner kaum sein können und liefen mehrere hunderte Meter lang in die gigantische Sichelförmige Bucht.
+Wir parkten unser Auto im großen Parkplatz des Hafens und erkundeten zu Fuß die Gegend.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-09-magheroarty-beach-donegal-I-WM-35p-DSC09781.jpg)
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-09-magheroarty-beach-donegal-I-WM-35p-DSC09782.jpg)
 
-![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-09-magheroarty-beach-donegal-I-WM-35p-DSC09783.jpg)
+Hinter einer Kaimauer brachen etwas größere Wellen, jedoch schienen hier auch größere Felsen im Wasser zu liegen. Auf der anderen Seite der Kaimauer war komplett spiegelglattes Wasser. Etwa 100 Meter weiter in Lee begannen dann die Wellen die sich schöner sauber und parallel in Richtung Sandstrand rollten.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-09-magheroarty-beach-donegal-I-WM-35p-DSC09813.jpg)
 
+Wenig später standen wir mit 5.9er und 6.2er Segel und im glatten Wasser des Hafens. Der Plan war einfach. Wir wollten versuchen im Glatten Wasser heraus zu surfen um dann hoffentlich gut angepowered über die Wellen nach draußen zu kommen. 5 Minuten später lagen wir beide in Wasserstart-Position am Ende der Kaimauer direkt vor den Wellen und versuchten vergeblich irgendwo genügend Wind zu finden um wieder zurück aufs Board zu kommen.
+Aus irgendeinem Grund, vermutlich durch die Windabdeckung der Mauer schien genau hier kein Wind mehr anzukommen - schade eigentlich.
+Dabei wäre der der Plan doch so schön gewesen. Wir verständigten uns kurz über Handzeichen und schwammen mit unserem Material weiter nach Lee in die Wellen um von dort einen weiteren Versuch zu starten.
+
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-09-magheroarty-beach-donegal-I-WM-35p-DSC09818.jpg)
+
+Der Wind schien hier immer noch etwas löchrig, aber immerhin ausreichend zu sein um wieder zurück aufs Board und raus über die Wellen zu kommen. Draußen angekommen war dann eigentlich alles ganz einfach. Zwar ging es zwischen den Wellen ordentlich auf und ab, aber immerhin hier reichte der Wind für entspanntes Freeriden.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-09-magheroarty-beach-donegal-I-WM-35p-DSC09823.jpg)
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-09-magheroarty-beach-donegal-I-WM-35p-DSC09825.jpg)
 
+Besonders beeindruckend war hierbei allerdings die Rückfahrt zum Strand. Bereits mindestens 200 Meter vor dem Strand konnte man sich eine passende Welle aussuchen. Hier konnte man in Ruhe beobachten, wie sich aus der langen Line im Wasser ein kleiner Berg auftürmte. In diesen konnte man dann bei passender Höhe hineindroppen und versuchen den ein oder anderen Turn zu fahren. Wenn man bis dahin noch nicht im Gleiten war (was hin und wieder der Fall war), konnte man spätestens dann in die Fuss-Schlaufen steigen.
+
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-09-magheroarty-beach-donegal-I-WM-35p-DSC09828.jpg)
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-09-magheroarty-beach-donegal-I-WM-35p-DSC09830.jpg)
 
+Später am Tag gesellte sich noch ein weiterer Surfer dazu, der aber nur kurz am Strand auftauchte, dann mehrere Schläge raus Kreuzte und dann einige hundert Meter weit draußen beeindruckend große Wellen abritt.
+
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-09-magheroarty-beach-donegal-I-WM-35p-DSC09831.jpg)
+
+Der restliche Tag gestaltet sich ähnlich wie auch schon in der Brandon Bay. Das Hauptziel lag immer darin irgendwie über die langen Wellen nach draußen zu kommen. Durch den etwas löchrigen Wind war es hier nur noch mal eine Nummer komplizierter. Sobald man dies jedoch einmal geschafft hatte, war man erst mal in sicheren Gewässern und konnte sich eine Welle aussuchen und mit dieser zurück an den Strand fahren. Kam man beim rausfahren jedoch zum Liegen bekam man mit aller Wucht zu spüren, dass dieser Swell hier mit der heimischen Ostsee nicht zu vergleichen ist und wurde dann nach allen Regeln der Kunst gewaschen.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-09-magheroarty-beach-donegal-I-WM-35p-DSC09832.jpg)
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-09-magheroarty-beach-donegal-I-WM-35p-DSC09870.jpg)
+
+Und so forderte der Tag am Ende auch noch ein 6.2 Quadrameter großes Opfer.
+Im löchrigen Wind zum liegen gekommen, nahm die nächste Welle das Material einmal mit in Richtung Grund, brach den Mast und drehte wenig später das Board einmal quer durch das zum bersten gespannte Segel.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-09-magheroarty-beach-donegal-I-WM-35p-DSC09877.jpg)
