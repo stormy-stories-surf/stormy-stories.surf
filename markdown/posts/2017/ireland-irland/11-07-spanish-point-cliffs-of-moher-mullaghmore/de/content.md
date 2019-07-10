@@ -1,6 +1,6 @@
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-07-spanish-point-cliffs-of-moher-mullaghmore/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-07-spanish-point-cliffs-of-moher-mullaghmore-WM-35p-DSC09663.jpg)
 
-# Irland 2017 : Spanish Point, Cliffs of Moher & Mullaghmore
+# Irland 2017 : Spanish Point, Cliffs of Moher, Mullaghmore
 
 Am nächsten Morgen ging es dann wie auch schon am vorherigen Tag zur Spot-Sichtung einmal durch die Brandon Bay. Die Vorhersage war ziemlich genau am Limit, so dass es selbst mit unseren größeren Segeln (5.9 und 6.2) knapp werden konnte.
 
