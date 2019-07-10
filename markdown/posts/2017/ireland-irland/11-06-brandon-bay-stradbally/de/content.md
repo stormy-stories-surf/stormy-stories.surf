@@ -25,14 +25,12 @@ Am Strand selbst war jedoch niemand zu sehen. Die Bedingungen waren schwer einzu
 
 Wir unterhielten uns schon über unsere größeren Segel und dass man es einfach einmal ausprobieren könnte und sahen dann einige hundert Meter nördlicher ein Segel zwischen den Wellen und einen Bus am Strand stehen.
 
-![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09272.JPG)
-
-Kurze Zeit später hatten wir die Zufahrt gefunden und passender Weise stapfte der irische Local gerade aus dem Wasser. Er erzählte uns, dass er nun leider wieder los müsse, weil seine Mittagspause nun vorbei sei und erkundigte sich nach unserer kleinsten Segelgröße. 3.5 und 3.7 passten für uns erst einmal überhaupt nicht zu dem, was wir dort am Strand sahen - aber naja. Wir dankten für den Rat, genau diese Segel aufzubauen und fuhren zurück zu unserer Unterkunft um das Auto zu beladen.
-
 <p float="left">
   <img src="../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09129.JPG" width="49%" />
   <img src="../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09139.JPG" width="49%" />
 </p>
+
+Kurze Zeit später hatten wir die Zufahrt gefunden und passender Weise stapfte der irische Local gerade aus dem Wasser. Er erzählte uns, dass er nun leider wieder los müsse, weil seine Mittagspause nun vorbei sei und erkundigte sich nach unserer kleinsten Segelgröße. 3.5 und 3.7 passten für uns erst einmal überhaupt nicht zu dem, was wir dort am Strand sahen - aber naja. Wir dankten für den Rat, genau diese Segel aufzubauen und fuhren zurück zu unserer Unterkunft um das Auto zu beladen.
 
 <p float="left">
   <img src="../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09102.JPG" width="49%" />
