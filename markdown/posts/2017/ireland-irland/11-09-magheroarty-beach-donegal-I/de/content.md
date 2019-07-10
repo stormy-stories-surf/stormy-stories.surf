@@ -44,7 +44,7 @@ Wir hörten einen spannenden Podcast über die Gesellschaft und das Leben in Sau
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-09-magheroarty-beach-donegal-I-WM-35p-DSC09773.jpg)
 
-Nach kurzer Zeit hatten wir das sogenannte Bloody Foreland erreicht. Wie wir herausfinden konnten, hat diese Gegend ihren Namen nicht, wie man vielleicht annehmen könnte, wegen einer sagenumwobenen Schlacht in der Vergangenheit, sondern wegen der Rotfärbung der Steine bei Sonnenuntergang.
+Nach kurzer Zeit hatten wir das sogenannte Bloody Foreland erreicht. Wie wir herausfinden konnten, benannte diese Gegend nicht, wie man vielleicht annehmen könnte, eine sagenumwobenen Schlacht in der Vergangenheit, sondern die Rotfärbung der Steine bei Sonnenuntergang.
 Unser Meinung nach hätte allerdings auch der Ein - und Ausstieg an diesem Spot Namensgeber für diesen Ort sein können. Für uns sah das Ganze jedenfalls nicht besonders einladend aus und so entschieden wir uns wieder zurück an den Magheroarty Beach zu fahren.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-09-magheroarty-beach-donegal-I-WM-35p-DSC09780.jpg)
