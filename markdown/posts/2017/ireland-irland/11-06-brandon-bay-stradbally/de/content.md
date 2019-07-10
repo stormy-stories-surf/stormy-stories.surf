@@ -51,14 +51,12 @@ Der erste Versuch ging bei mir tatsächlich gleich durch den Shorebreak und hint
 
 Auf dem Weg zurück, fühlte ich mich direkt an meine Zeit in Irland ein Jahr zuvor erinnert. Bei diesen langen geraden Wellen und Side-Offshore Wind ist es einfach unverschämt einfach in die brechende Welle hinein zu starten, auf der Welle zu bleiben und trotzdem die Geschwindigkeit zu halten. Das Fahren von richtigen Turns fiel mir allerdings mittlerweile schon wieder relativ schwer.
 
-![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09186.JPG)
-
-Ebenso erging es mir bei den nächsten Versuchen durch den Shore-Break zu kommen. Auch wenn 3.7 beim Abreiten der Wellen definitiv das Mittel der Wahl zu sein schien, hatte es bei der Fahrt durch den Shorebreak ein klein bisschen zu wenig Zug.
-
 <p float="left">
   <img src="../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09250.JPG" width="49%" />
   <img src="../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09244.JPG" width="49%" />
 </p>
+
+Ebenso erging es mir bei den nächsten Versuchen durch den Shore-Break zu kommen. Auch wenn 3.7 beim Abreiten der Wellen definitiv das Mittel der Wahl zu sein schien, hatte es bei der Fahrt durch den Shorebreak ein klein bisschen zu wenig Zug.
 
 <p float="left">
   <img src="../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09206.JPG" width="49%" />
