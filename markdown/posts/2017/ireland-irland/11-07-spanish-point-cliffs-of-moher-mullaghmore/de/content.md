@@ -21,8 +21,6 @@ Okay, somit dann schnell ins Auto, noch einen letzten Blick auf die traumhafte S
 Wie auch schon im vorherigen Jahr entschieden wir uns statt über Castleisland und Limerick für den 70 Kilometer kürzeren Weg über Tralee, Listowel und dann mit der Fähre von Tarbert nach Killimer. Die Überquerung der Grenze vom County Kerry ins County Clare auf dem Wasserweg dauert ca. 20 Minuten, kostet etwa 20€ für ein normales Auto und ist in der Regel mindestens stündlich möglich.
 Zeit verbringt man hierbei ziemlich genau so viel wie bei der Fahrt mit dem Auto über Limerick. Uns gefällt diese Variante jedoch allein schon wegen der schöneren Aussicht und der entspannten Schifffahrt besser. Über die Fährzeiten sollte man sich jedoch je nach eigenem Entspannungsmodus und Wetter vorher informieren. In unserem Fall bedeutete das Nicht-Informieren dann, 15-20 Minuten in der irischen Mittags-Sonne entspannte Musik hören zu müssen. Es gibt denke ich Schlimmeres.
 
-//auch hier: Routenkarte?
-
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-07-spanish-point-cliffs-of-moher-mullaghmore/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-07-spanish-point-cliffs-of-moher-mullaghmore-WM-35p-DSC09536.jpg)
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-07-spanish-point-cliffs-of-moher-mullaghmore/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-07-spanish-point-cliffs-of-moher-mullaghmore-WM-35p-DSC09537.jpg)
@@ -40,8 +38,6 @@ Fündig wurden wir in einem günstigen und gemütlichen B&B im Ortsanfang von La
 Von hier aus sollte unsere Reise am nächsten Tag weiter gehen. Unser finales Ziel war weiterhin Magheroarty Beach im Norden Donegals. Die Vorhersage schien hier weiterhin stabil zu bleiben und auf dem Weg dorthin sollte auch noch Zeit für die ein oder andere Surfer-Sehenswürdigkeit sein.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-07-spanish-point-cliffs-of-moher-mullaghmore/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-07-spanish-point-cliffs-of-moher-mullaghmore-WM-35p-DSC09577.jpg)
-
-//öhm, das Bild solltet ihr vielleicht nochmal drehen ;)
 
 Nach dem Frühstück standen als erstes die Cliffs of Moher auf dem Programm. Von Lahinch ca. 15 Minuten entfernt lagen diese ohnehin direkt auf dem Weg in Richtung Norden und außerdem erwarteten wir auch hier im November nicht allzu viele Touristenbusse.
 
