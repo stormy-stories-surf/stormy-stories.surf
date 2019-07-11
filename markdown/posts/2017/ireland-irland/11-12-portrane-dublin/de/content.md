@@ -24,16 +24,22 @@ Es wurde also Zeit eine Unterkunft zu suchen. Hier in halbstündiger Entfernung 
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00107.jpg)
 
-Alles wirkte irgendwie unentspannter und weniger herzlich als im ländlichen West-Irland. Nach zwei Fehl-Versuchen bei denen uns auf ein Klingeln nicht geöffnet wurde, fanden wir schließliche in Rush (??? Link) ein B&B in unmittelbare Nähe zum Wasser. Auch diese Unterkunft schien offenbar eigentlich im Winter geschlossen zu sein, doch auch hier wollte man uns gerne in die nagelneuen Zimmer des B&Bs aufnehmen. Die einzige Bedingung schien zu sein, dass wir kein Problem mit dem enventuell noch nicht verflogenen Geruch der Wandfarben haben, denn hier wurde gerade vor kurzem noch gestrichen. Wir willigten gerne ein und lösten das Problem durch einfaches Durchlüften.
+Alles wirkte irgendwie unentspannter und weniger herzlich als im ländlichen West-Irland. Nach zwei Fehl-Versuchen bei denen uns auf ein Klingeln nicht geöffnet wurde, fanden wir schließlich in Rush (??? Link) ein B&B in unmittelbare Nähe zum Wasser. Auch diese Unterkunft schien offenbar eigentlich im Winter geschlossen zu sein, doch auch hier wollte man uns gerne in die nagelneuen Zimmer des B&Bs aufnehmen. Die einzige Bedingung schien zu sein, dass wir kein Problem mit dem enventuell noch nicht verflogenen Geruch der Wandfarben haben, denn hier wurde gerade vor kurzem noch gestrichen. Wir willigten gerne ein und lösten das Problem durch die ebenso neuen großen Kipp-Fenster mit Blick aufs Meer.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00147.jpg)
 
-
+Beim Ausladen des Autos wurden wir dann mehrfach darauf hingewiesen, dass es doch sicher sinnvoller sei unser Auto mit all dem Surf-Equipment auf dem Dach in der verschlossenen Einfahrt zu parken. Die ersten zwei Male winkten wir nur freundlich ab. Wir selbst sind in einem behüteten kleinen Dorf in Niedersachsen aufgewachsen und dort, genau wie auch im ländlichen West-Irland, kam es uns eher übertrieben vor unser Hab und Gut besonders schützen oder abschließen zu müssen.
+Hier jedoch schien die alles ein bisschen anders zu sein. Schlussendlich ließen wir uns dann überzeugen das Auto mit auf den Innenhof zu stellen. Vielleicht war es tatsächlich nicht verkehrt, doch insgesamt, so hatten wir beide das Gefühl, erlebte man hier einfach nur ein typisches Beispiel für : "Wer viel hat, der kann auch viel verlieren." .
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00152.jpg)
 
+Und so kann ein klein bisschen zu viel Reichtum einen auch schnell unnötig paranoid werden lassen. Oder aber, wenn die Zweifel vielleicht sogar berechtig sind, dann kann in diesem Fall das kleine bisschen zu viel Reichtum einfach so viel Neid in der Umgebung erzeugen, das man völlig berechtig paranoid wird.
+Naja - was man auf jeden Fall zusammenfassen kann : Die offensichtlich etwas wohlhabenderen Menschen hier in der Vorstadt von Dublin scheinen uns irgendwie deutlich unentspannter und unglücklicher zu sein als die einfachen Menschen in den ländlichen Regionen West-Irlands. Was uns zu dem Schluss kommen lässt, das Geld halt am Ende des Tages einfach nicht alles ist.
+Und genau aus diesem Schluss heraus nahmen wir jetzt unser Portmonnaie und liefen ein paar Straßen weiter zu den gut besuchten Pubs, die wir schon zuvor aus dem Auto gesehen Hatten.
+Prost - und gute Nacht ...
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00180.jpg)
+
 
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00181.jpg)
