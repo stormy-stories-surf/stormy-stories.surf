@@ -8,8 +8,6 @@ Die Fahrt von Mullaghmore weiter nach Magheroarty führte uns durch eine wunders
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-09-magheroarty-beach-donegal-I-WM-35p-DSC09744.jpg)
 
-// bisschen viel Location-Namedropping vielleicht. Hmm, ne Landkarte mit Route einblenden?
-
 Von Gortahork aus fuhren wir erst einmal weiter in Richtung Mín Lárach (Meenlaragh), den Ort auf Höhe des Magheroarty Beach. Hier kam uns jedoch alles relativ dunkel und ausgestorben vor, so dass wir uns schnell entschieden unser Glück an diesem regnerischen Abend lieber in Gortahork zu probieren.
 Hier hatten wir sogar ein Hotel gesehen, dass aber auf den ersten Blick nicht gerade günstig aussah. Zuerst einmal war jedoch der lokale Supermarkt unser Anlaufpunkt. Hier schien noch ordentlich etwas los zu sein und so fragten wir an der Kasse nach einem Bed & Breakfast in der Nähe.
 
@@ -49,8 +47,6 @@ Wir hörten einen spannenden Podcast über die Gesellschaft und das Leben in Sau
 Nach kurzer Zeit hatten wir das sogenannte Bloody Foreland erreicht. Wie wir herausfinden konnten, war diese Gegend nicht, wie man vielleicht annehmen könnte, nach einer sagenumwobenen Schlacht in der Vergangenheit benannt, sondern der Rotfärbung der Steine bei Sonnenuntergang.
 Unser Meinung nach hätte allerdings auch der Ein- und Ausstieg an diesem Spot Namensgeber für diesen Ort sein können. Für uns sah das Ganze jedenfalls nicht besonders einladend aus und so entschieden wir uns wieder zurück an den Magheroarty Beach zu fahren.
 
-//habt ihr da ein Bild von? Würde hier passen
-
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-09-magheroarty-beach-donegal-I-WM-35p-DSC09780.jpg)
 
 In Magheroarty sah es mittlerweile etwas besser aus. Der Wind schien zwar immer noch an der unteren Grenze zu sein, die Wellen jedoch hätten schöner kaum sein können und liefen mehrere hunderte Meter lang in die gigantische sichelförmige Bucht.
@@ -76,8 +72,7 @@ Der Wind schien hier immer noch etwas löchrig, aber immerhin ausreichend zu sei
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-09-magheroarty-beach-donegal-I-WM-35p-DSC09825.jpg)
 
-Besonders beeindruckend war hierbei allerdings die Rückfahrt zum Strand. Bereits mindestens 200 Meter vor dem Strand konnte man sich eine passende Welle aussuchen. Hier konnte man in Ruhe beobachten, wie sich aus der langen Line im Wasser ein kleiner Berg auftürmte. In diesen konnte man dann bei passender Höhe hineindroppen und versuchen den ein oder anderen Turn zu fahren. Wenn man bis dahin noch nicht im Gleiten war (was hin und wieder der Fall war), konnte man spätestens dann in die Fußschlaufen steigen.
-//man-Overload
+Besonders beeindruckend war hierbei allerdings die Rückfahrt zum Strand. Bereits mindestens 200 Meter vor dem Strand konnte man sich eine passende Welle aussuchen. Hier konnte man in Ruhe beobachten, wie sich aus der langen Line im Wasser ein kleiner Berg auftürmte. Dann hieß es bei passender Höhe hineinzudroppen und zu versuchen den ein oder anderen Turn zu fahren. Wenn der Wind bis hierhin zum Gleiten nicht gereicht hatte, was hin und wieder der Fall war, war es spätestens jetzt möglich in die Fußschlaufen zu steigen.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-09-magheroarty-beach-donegal-I-WM-35p-DSC09828.jpg)
 
