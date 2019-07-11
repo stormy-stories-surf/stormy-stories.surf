@@ -19,10 +19,28 @@ Eher so Windsurf-Einsteigerin, aber das hält ja niemanden ab! Ist der Meinung, 
 |                  | Bücher                |
 |                  | Musik                 |
 
+![link broken](../../../../../mediaLibrary/pages/info/authors/windsurf-stormy-stories-surf-travel-blog--info-authors-marcel-WM-35p-DSC05577_zuschnitt.jpg)
 
 # Marcel
 
-TODO
+| Wohnort:         | Hamburg, Germany       |
+|------------------|------------------------|
+| Homespot:        | Fehmarn                |
+|                  | Sahlenburg             |
+| Lieblings-Spots: | Heiligenhafen (GER)    |
+|                  | Magheroarty (IRE)      |
+|                  | Brandon Bay (IRE)      |
+|                  | Pozo Izquierdo (ESP)   |
+| Lieblins-Setup:  | Hifly Madd 90          |
+|                  | Avanti Sails Viper 4.0 |
+| Hobbys:          | Windsurfen             |
+|                  | Fotografieren          |
+|                  | Programmieren          |
+|                  | Schrauben              |
+|                  | Motorrad fahren        |
+|                  | Wellenreiten           |
+|                  | Snowboarden            |
+| Musik:           | Metalcore A-Z
 
 ![link broken](../../../../../mediaLibrary/pages/info/authors/windsurf-stormy-stories-surf-travel-blog-info-authors-andre-WM-35p-DSC05582.jpg)
 
