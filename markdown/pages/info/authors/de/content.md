@@ -52,8 +52,8 @@ Hat man diese Sachen verstanden, hat man auch mich verstanden.
 
 | Wohnort:         | Erlangen, Germany               |
 |------------------|---------------------------------|
-| Homespot:        | Brombachsee (DEU)               |
-| Lieblings-Spots: | Heiligenhafen (DEU)             |
+| Homespot:        | Brombachsee (GER)               |
+| Lieblings-Spots: | Heiligenhafen (GER)             |
 |                  | Hanstholm (DNK)                 |
 |                  | Pozo Izquierdo (ESP)            |
 |                  | Brandon Bay (IRE)               |
