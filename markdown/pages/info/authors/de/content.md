@@ -23,6 +23,10 @@ Eher so Windsurf-Einsteigerin, aber das hält ja niemanden ab! Ist der Meinung, 
 
 # Marcel
 
+Surfe und fotografiere schon seit einigen jahren sehr gern wenn auch nur auf amateur/hobby niveau und für mich selbst. Als Andre dann mit der idee ankam das in einem Blog zu verbinden war ich sehr begeistert auch wenn ich echt nicht so der schreib Mensch bin und mich damit immer ein bisschen schwer tu dafür bekommt ihr von mir nen paar mehr Bilder ;)
+bin möglichst viel mit Jana und Andre unterwegs um schöne Landschaften, nette Leute und coole Spots kennen zu lernen und meine Fähigkeiten etwas aus zu bauen :)
+
+
 | Wohnort:         | Hamburg, Germany       |
 |------------------|------------------------|
 | Homespot:        | Fehmarn                |
