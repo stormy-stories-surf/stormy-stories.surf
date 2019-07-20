@@ -23,8 +23,8 @@ Eher so Windsurf-Einsteigerin, aber das hält ja niemanden ab! Ist der Meinung, 
 
 # Marcel
 
-Surfe und fotografiere schon seit einigen jahren sehr gern wenn auch nur auf amateur/hobby niveau und für mich selbst. Als Andre dann mit der idee ankam das in einem Blog zu verbinden war ich sehr begeistert auch wenn ich echt nicht so der schreib Mensch bin und mich damit immer ein bisschen schwer tu dafür bekommt ihr von mir nen paar mehr Bilder ;)
-bin möglichst viel mit Jana und Andre unterwegs um schöne Landschaften, nette Leute und coole Spots kennen zu lernen und meine Fähigkeiten etwas aus zu bauen :)
+Wenn auch nur auf Amateur - / Hobby - Niveau und für mich selbst, windsurfe und fotografiere ich schon seit einigen Jahren sehr gern. Als Andre dann mit der Idee ankam beides in einem Blog zu verbinden, war ich sehr begeistert. Auch, wenn ich echt nicht so der "Schreib-Mensch" bin und mich damit immer ein bisschen schwer tue, bekommt ihr von mir dann ein paar mehr Bilder ;)
+Ich bin möglichst viel mit Jana und Andre unterwegs um schöne Landschaften, nette Leute und coole Spots kennen zu lernen und meine Fähigkeiten etwas auszubauen :)
 
 
 | Wohnort:         | Hamburg, Germany       |
