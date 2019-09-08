@@ -131,4 +131,4 @@ Dieses Jahr hatten wir das viel zu kleine Auto mit dem Gepäck für zwei Windsur
 
 Als wir dann allerdings auch hier komplett ohne Probleme und Reklamationen durchkamen, waren wir tatsächlich maximal verblüfft. Na gut, heute hatte man es anscheinend tatsächlich gut gemeint mit uns. So liefen wir dann vollkommen entspannt zur Sicherheitskontrolle, setzten uns in den leeren Flieger und landeten ein paar Stunden später in Hamburg - was für ein Urlaub!
 
-![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-DSC03021_mod.jpg)
+![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC01952.jpg)
