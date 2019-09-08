@@ -7,7 +7,7 @@ Unser grobes Ziel war die Küste kurz vor oder hinter Dublin, um von dort aus ei
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00092.jpg)
 
-Kurz vor Strabane warteten wir die ganze Zeit auf ein Zeichen, an dem wir erkennen konnten, wann wir die nordirische Grenze übertreten haben. Dieses Zeichen blieb allerdings aus. Als wir dann jedoch den Grenzfluss Foyle überfahren hatten und nirgends auch nur ein Hinweis auf eine Grenze zu sehen war, akzeptierten wir einfach nun in einem neuen Land zu sein und fuhren munter weiter die A5 entlang in Richtung Omagh. [meh, irgendwie ein komischer Absatz]
+Kurz vor Strabane warteten wir die ganze Zeit auf ein Zeichen, an dem wir erkennen konnten, wann wir die nordirische Grenze übertreten haben. Dieses Zeichen blieb allerdings aus. Als wir dann jedoch den Grenzfluss Foyle überfahren hatten und nirgends auch nur ein Hinweis auf eine Grenze zu sehen war, akzeptierten wir einfach nun in einem neuen Land zu sein und fuhren munter weiter die A5 entlang in Richtung Omagh.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00100.jpg)
 
@@ -19,7 +19,7 @@ Auch die Preise, die wir hier lesen konnten waren deutlich geringer als noch vor
 
 Bei Aughnacloy übertraten wir die nächste Grenze und wechselten am Grenzfluss River Blackwater zurück ins Land Irland und somit zurück zu europäischen Preisen und Einheiten.
 Auch hier gab es keinerlei Hinweis auf eine Grenze und so fuhren wir frohen Mutes weiter auf die N2 in Richtung Ardee, wo es dann über die N33 auf die nach Dublin führende M1 ging. Da wir mittlerweile knappe fünf Stunden Fahrt hinter uns hatten und in Magheroarty ein wenig getrödelt hatten, war es mittlerweile leider wieder am Dämmern.
-Es wurde also Zeit eine Unterkunft zu suchen. Hier in halbstündiger Entfernung zu Dublin schien alles irgendwie ein bisschen weniger irisch (?) zu sein. Hohe unsympathische Mauern und große luxuriöse Grundstücke, schwere Tore vor den Einfahrten und überall nicht zu übersehende Alarmanlagen.
+Es wurde also Zeit eine Unterkunft zu suchen. Hier in halbstündiger Entfernung zu Dublin schien alles irgendwie ein bisschen weniger irisch zu sein. Hohe unsympathische Mauern und große luxuriöse Grundstücke, schwere Tore vor den Einfahrten und überall nicht zu übersehende Alarmanlagen.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00107.jpg)
 
@@ -35,7 +35,7 @@ Hier jedoch schien alles ein bisschen anders zu sein. Schlussendlich ließen wir
 Und so kann ein klein bisschen zu viel Reichtum einen auch schnell unnötig paranoid werden lassen. Oder aber, wenn die Zweifel vielleicht sogar berechtigt sind, dann kann in diesem Fall das kleine bisschen zu viel Reichtum einfach so viel Neid in der Umgebung erzeugen, dass man völlig berechtigt paranoid wird.
 Naja - was man auf jeden Fall zusammenfassen kann: Die offensichtlich etwas wohlhabenderen Menschen hier in der Vorstadt von Dublin scheinen uns irgendwie deutlich unentspannter und unglücklicher zu sein als die einfachen Menschen in den ländlichen Regionen Westirlands. Was uns zu dem Schluss kommen lies, das Geld, am Ende des Tages, einfach nicht alles ist.
 Und genau aus diesem Schluss heraus nahmen wir nun unser Portemonnaie und liefen ein paar Straßen weiter zu den gut besuchten Pubs, die wir schon zuvor aus dem Auto gesehen hatten.
-Prost - und gute Nacht ... [uff, das ist schon aus einer sehr privilegierten Position geschrieben :D]
+Prost - und gute Nacht ...
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00180.jpg)
 
@@ -67,7 +67,7 @@ Nun hatte auch Marcel sie gesehen und wir liefen näher an den Strand, um das Ga
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00305.jpg)
 
-Die Bedingungen waren traumhaft und einfach unglaublich einfach zu fahren. Ganz und gar in unserer Komfort-Zone und genau richtig um weder unter- noch überfordernd zu sein. Der Wind war super gut zu händeln, die Wellen zwar sehr klein und ungeordnet aber trotzdem ausreichend um alles, was wir in den vergangenen Tagen übers Springen und Abreiten gelernt hatten, in Ruhe auszuprobieren. So sprangen wir von jedem kleinsten Kabbel-Wellchen so hoch es ging in die Höhe, versuchten Tabletops mit gerade mal 50 cm Höhe unterm Board und schlitzten Cutbacks ins knietiefe Wasser, so dass die Finnen gelegentlich den Boden streiften.
+Die Bedingungen waren traumhaft und einfach unglaublich einfach zu fahren. Ganz und gar in unserer Komfort-Zone und genau richtig um weder unter- noch überfordernd zu sein. Der Wind war super gut zu händeln, die Wellen zwar sehr klein und ungeordnet aber trotzdem ausreichend um alles, was wir in den vergangenen Tagen übers Springen und Abreiten gelernt hatten, in Ruhe auszuprobieren. So sprangen wir von jedem kleinsten Kabbel-Wellchen so hoch es ging in die Höhe, versuchten Table-Tops mit gerade mal 50 cm Höhe unterm Board und schlitzten Cutbacks ins knietiefe Wasser, so dass die Finnen gelegentlich den Boden streiften.
 Lediglich die Wassertemperaturen hatten uns anfangs wirklich geschockt. Wie auch schon die letzten Tage hatten wir uns darauf geeinigt uns nach ein bis zwei Runden wieder am Strand zu treffen und die Lage zu besprechen. Wir kamen zu dem Schluss, dass es sicher war weiter zu machen. Doch anders als an den vorherigen Tagen hatten wir beide mit Erstaunen zu berichten, wie unfassbar kalt das Wasser doch war. Eigentlich war es logisch gewesen. Die "warmen" Wassertemperaturen an der Westküste Irlands sind selbst im Winter nur deshalb möglich, weil hier der Golfstrom für eine ausreichende Durchmischung mit warmem Wasser aus dem Westen sorgt.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00322.jpg)
@@ -75,7 +75,7 @@ Lediglich die Wassertemperaturen hatten uns anfangs wirklich geschockt. Wie auch
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00326.jpg)
 
 Der Golfstrom, der in manchen geographischen Breiten mehr als einhundertmal so viel Wasser transportiert, wie über alle Flüsse der Welt zusammen ins Meer fließt (https://de.wikipedia.org/wiki/Golfstrom), geht in Richtung Europa in den Nordatlantikstrom über. Er sorgt hier gerade in Irland, Großbritannien und in Teilen Skandinaviens für ein wärmeres Klima als auf Grund der hohen geographischen Breite eigentlich zu vermuten wäre. Das macht Irland auch selbst im Herbst und Winter zu einem attraktiven Windsurfziel. Die Irische See wiederum, die zwischen Irland und Großbritannien verläuft, ist dieser "Warmwasserheizung" nicht so direkt ausgesetzt wie die Atlantikküste Irlands und scheint zumindest an diesem Tag nicht viel von der Heizleistung abbekommen zu haben.
-Nach einer kurzen Pause waren wir wieder ausreichend aufgewärmt und starteten einen zweiten Versuch. Nun sahen wir auch beim Surfen vermehrt immer öfter ein paar Robben in unserer Nähe auftauchen. Auch wenn wir versuchten Abstand zu den Tieren zu halten, schienen sie daran nicht unbedingt interessiert zu sein.[woran?]
+Nach einer kurzen Pause waren wir wieder ausreichend aufgewärmt und starteten einen zweiten Versuch. Nun sahen wir auch beim Surfen vermehrt immer öfter ein paar Robben in unserer Nähe auftauchen. Auch wenn wir versuchten Abstand zu den Tieren zu halten, schienen sie an Abstand nicht unbedingt interessiert zu sein.
 Nicht selten wenn wir auf dem Weg nach draußen Fahrt aufnahmen, tauchte plötzlich in der Nähe ein niedlich aussehender schwarzer Kopf aus dem Wasser auf und beobachtet wie das Surfboard sich seinen Weg durch das Wasser bahnte. Wenige Meter bevor man dann bei ihnen angekommen war, tauchte der Kopf dann ab in die Tiefe, nur um dann ein paar Sekunden später wieder aus dem Wasser zu gucken und uns von hinten zu beobachten.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00381.jpg)
@@ -103,7 +103,7 @@ Bei Gogartys angekommen, schleppten wir kurz unsere Klamotten hoch ins Zimmer un
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00573.jpg)
 
-Anschließend ging es dann bis zur Sperrstunde, die in Dublin schon relativ früh gegen ca. 1 Uhr die Läden dicht macht, zu reichlich Live-Musik in die Pubs. Dazu gab es leckeren Snakebite, eine Mischung aus Cider, Lagerbier und einem Schuss Schwarze Johannisbeere. Wir lauschten den talentierten Musikern und erinnerten uns an die letzten Tage zurück. Im Grunde waren wir garnicht mal so viel auf dem Wasser gewesen und relativ viel dem Wind hinterhergefahren. 
+Anschließend ging es dann bis zur Sperrstunde, die in Dublin schon relativ früh gegen ca. 1 Uhr die Läden dicht macht, zu reichlich Live-Musik in die Pubs. Dazu gab es leckeren Snakebite, eine Mischung aus Cider, Lagerbier und einem Schuss Schwarze Johannisbeere. Wir lauschten den talentierten Musikern und erinnerten uns an die letzten Tage zurück. Im Grunde waren wir garnicht mal so viel auf dem Wasser gewesen und relativ viel dem Wind hinterhergefahren.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00589.jpg)
 
