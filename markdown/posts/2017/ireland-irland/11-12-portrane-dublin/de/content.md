@@ -63,15 +63,26 @@ Wir kletterten ein paar Felsen entlang und konnten hier, etwas vorgelagert im Wa
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00256.jpg)
 
+Nun hatte auch Marcel sie gesehen und wir liefen näher an den Strand um das Ganze mal genauer anzugucken. Da tauchten sie wieder auf. Kleine schwarze Köpfe, vlt. zwei drei Stück. Und dann überkam es uns. Robben! Es waren tatsächlich Robben die sich hier in den kleinen Windwellen vergnügten, immer mal wieder untertauchten und teilweise sogar in den Wellen surften. Dann wurden es noch mehr Köpfe und noch mehr. Knappe zehn fröhlich schwimmende Robben hatten hier ihren Spaß in den Wellen. Kurze Zeit waren wir uns nicht ganz sicher, ob die Tiere sich gestört fühlen würden wenn wir uns mit in die Fluten stürzen würden. Wir hatten auf unserer Reise nirgends Info - oder Warnschilder gelesen. Jungtiere sollte es unserer Meinung nach erst im Frühjahr geben und da die Robben sich hauptsächlich in Ufer-Nähe aufhielten beschlossen wir es einfach mal zu versuchen und dabei genügend Abstand zu halten.
+
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00305.jpg)
+
+Die Bedingungen waren traumhaft und einfach unglaublich einfach zu fahren. Ganz und gar in unserer Komfort-Zone und genau richtig um weder unter - noch überfordernd zu sein. Der Wind war super gut zu händeln, die Wellen zwar sehr klein und ungeordnet aber trotzdem ausreichend um alles was wir in den vergangenen Tagen übers Springen und Abreiten gelernt hatten in Ruhe auszuprobieren. So sprangen wir von jedem kleinsten Kabbel-Wellchen so hoch es ging in die Höhe, versuchten Table-Tops mit gerade mal 50 cm Höhe unterm Board und schlitzten Cut-Backs ins knie-tiefe Wasser so dass die Finnen gelegentlich den Boden streiften.
+Lediglich die Wassertemperaturen hatten uns Anfangs wirklich geschockt. Wie auch schon die letzten Tage hatten wir uns darauf geeinigt uns nach ein bis zwei Runden wieder am Strand zu treffen und die Lage zu besprechen. Wie auch schon die letzten Tage kamen wir zu dem Schluss, dass es sicher war weiter zu machen. Doch anders als an den vorherigen Tagen hatten wir beide mit erstaunen zu berichten wie unfassbar kalt das Wasser doch war. Eigentlich war es logisch gewesen. Die "warmen" Wasser-Temperaturen an der West-Küste Irlands sind selbst im Winter nur deshalb möglich weil hier der Golf-Strom für eine ausreichende Durchmischung mit warmen Wasser aus dem Westen sorgt.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00322.jpg)
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00326.jpg)
 
+Der Golfstrom, der in manchen geographischen Breiten mehr als einhundertmal so viel Wasser transportiert, wie über alle Flüsse der Welt zusammen ins Meer fließt (https://de.wikipedia.org/wiki/Golfstrom) geht in Richtung Europa in den Nordatlantik-Strom über. Er sorgt hier gerade in Irland, Groß-Britannien und in Teilen Skandinaviens für ein wärmeres Klima als auf Grund der hohen geographischen Breite eigentlich zu vermuten wäre. Das macht Irland auch selbst im Herbst und Winter zu einem attraktiven Windsurf-Ziel. Die Irische See wiederum, die zwischen Irland und Groß Britannien verläuft, ist dieser "Warmwasserheizung" nicht so direkt ausgesetzt wie die Atlantikküste Irlands und scheint zumindest an diesem Tag nicht viel von der Heiz-Leistung abzubekommen.
+Nach einer kurzen Pause waren wir wieder ausreichend aufgewärmt und starteten einen zweiten Versuch. Nun sahen wir auch beim Surfen vermehrt immer öfter ein paar Robben in unserer Nähe auftauchen. Auch wenn wir versuchten Abstand zu den Tieren zu halten, schienen sie daran nicht unbedingt interessiert zu sein.
+Nicht selten wenn wir auf dem Weg nach draußen Fahrt aufnahmen, tauchte plötzlich in der Nähe ein niedlich aussehender schwarzer Kopf aus dem Wasser auf und beobachtet wie das Surf-Board sich seinen Weg durch das Wasser bahnte. Wenige Meter bevor man dann bei ihnen angekommen war, tauchte der Kopf dann ab in die Tiefe, nur um dann wenige Sekunden später wieder aus dem Wasser zu gucken und uns von hinten zu beobachten.
+
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00381.jpg)
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00382.jpg)
+
+Hierbei kam man sich dann schon fast eher selbst wie die Attraktion vor und nicht mehr wie der Beobachter. Nach wenigen Stunden war unser Akku dann entgültig entladen. Das kalte Wasser zärte
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00396.jpg)
 
