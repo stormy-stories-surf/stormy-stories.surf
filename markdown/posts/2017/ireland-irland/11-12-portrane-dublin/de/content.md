@@ -103,7 +103,7 @@ Bei Gogartys angekommen, schleppten wir kurz unsere Klamotten hoch ins Zimmer un
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00573.jpg)
 
-Anschließend ging es dann bis zur Sperrstunde, die in Dublin schon relativ früh gegen ca. 1 Uhr die Läden dicht macht, zu reichlich Live-Musik in die Pubs. Dazu gab es leckeren Snake-Bite, eine Mischung aus Cider, hellem Bier und einem Schuss Schwarze Johannisbeere. Wir lauschten den talentierten Musikern und erinnerten uns an die letzten Tage zurück. Im Grunde waren wir garnicht mal so viel auf dem Wasser gewesen und relativ viel dem Wind hinterhergefahren. 
+Anschließend ging es dann bis zur Sperrstunde, die in Dublin schon relativ früh gegen ca. 1 Uhr die Läden dicht macht, zu reichlich Live-Musik in die Pubs. Dazu gab es leckeren Snake-Bite, eine Mischung aus Cider, hellem Bier und einem Schuss Schwarze Johannisbeere. Wir lauschten den talentierten Musikern und erinnerten uns an die letzten Tage zurück. Im Grunde waren wir garnicht mal so viel auf dem Wasser gewesen und relativ viel dem Wind hinterhergefahren.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00589.jpg)
 
@@ -131,4 +131,4 @@ Dieses Jahr hatten wir das viel zu kleine Auto mit dem Gepäck für zwei Windsur
 
 Als wir dann allerdings auch hier komplett ohne Probleme und Reklamationen durchkamen, waren wir tatsächlich maximal verblüfft. Na gut, heute hatte man es anscheinend tatsächlich gut gemeint mit uns. So liefen wir dann vollkommen entspannt zur Sicherheits-Kontrolle, setzten uns in den leeren Flieger und landeten ein paar Stunden später in Hamburg - was für ein Urlaub!
 
-![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-DSC03021_mod.jpg)
+![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC01952.jpg)
