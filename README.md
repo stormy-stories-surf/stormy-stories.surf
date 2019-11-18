@@ -152,7 +152,7 @@ For this you can use the command-line tool PhotoPrep as follows:
 
 **TODO anon42**
 
-### Add your prepared photos to the stormy-stories.surf repo
+### Add your prepared photos to the stormy-stories.surf repository
 At stormy-stories.surf we have one main repository which stores all blog posts and all photos which are used in the post. The repository consists mainly of two directories:
 - markdown
 - mediaLibrary
@@ -236,3 +236,74 @@ git add -A
 git commit -m "#<TICKET_NUMBER> : Added photos for <POST_TITLE>"
 git push -u origin #<TICKET_NUMBER>
 ```
+
+
+### Add your text to the stormy-stories.surf repository
+Now as you already created a new ticket branch for adding the photos, we can also use this branch for adding the text.
+But before you can do this, you have to add a new directory for the text of your blog post in the markdown directory
+For this please keep up with the already existing directory structure which is as follows:
+
+```
+markdown
+├── pages
+│   ├── .....
+│                         
+├── posts
+│   ├── year
+│   │   ├── countryInEnglish-countryInGerman
+│   │   │   ├── Month-Day-NameOfPostInEnglishAndGerman
+│   │   │   │   ├── de
+│   │   │   │   │   └── content.md
+│   │   │   │   └── en
+│   │   │   │       └── content.md
+│   ├── year
+│   │   ├── countryInEnglish-countryInGerman
+│   │   │   ├── Month-Day-NameOfPostInEnglishAndGerman
+│   │   │   │   ├── de
+│   │   │   │   │   └── content.md
+│   │   │   │   └── en
+│   │   │   │       └── content.md
+│   ├── year
+│   │   ├── countryInEnglish-countryInGerman
+│   │   │   ├── Month-Day-NameOfPostInEnglishAndGerman
+│   │   │   │   ├── de
+│   │   │   │   │   └── content.md
+│   │   │   │   └── en
+│   │   │   │       └── content.md
+```
+For example if your post is about the Brandon Bay Stradbally in Ireland at the 06. November 2017 your directory structure has to look like :
+```
+markdown
+|
+├── posts
+│   ├── 2017
+│   │   ├── ireland-irland
+│   │   │   ├── 11-06-brandon-bay-stradbally
+│   │   │   │   ├── de
+│   │   │   │   │   └── content.md
+│   │   │   │   └── en
+│   │   │   │       └── TODO
+```
+
+For every language in which you write your text you have to create a directory (e.g. **de** and **en**) and put a markdown file called **content.md** into it. Always create at least the directories for German and English and put a empty **TODO** file into the directory if you have no translation yet. The aim for this blog is to have as many translated blog posts as possible.
+
+Now as the necessary files are created you can edit the content.md file and add your text and photos into it.
+
+As soon as you are finished with your text (or maybe (even better) also within the writing process) you have to add your changes to the version control. For this use the following commands and replace #<TICKET_NUMBER> by your github ticket / issue number (for example #54 ) and replace <POST_TITLE> by name of your blog-post.
+``` bash
+git status
+git add -A
+git commit -m "#<TICKET_NUMBER> : Added photos for <POST_TITLE>"
+git push -u origin #<TICKET_NUMBER>
+```
+### Let someone review your blog post
+To provide you from publishing a blog post full of typos and grammar errors share your idea with someone who has the honor to review your text and also the quality of your photos.
+This can be easily done with creating a pull-request at github.
+For this open https://github.com/stormy-stories-surf/stormy-stories.surf/compare , select **development** as base branch and your ticket branch as **compare** branch and click on **Create pull request** . Add a **title** to your new pull-request, add yourself as **assignee** and add someone else as a **reviewer** and click again on **Create pull request**. This someone now has the task to review your blog post and give you the approval to merge it into the development branch.
+
+### Merge your ticket branch into the development branch
+If a reviewer reviewed and approved your blog post you can merge your new blog post into the development branch by clicking on **Merge pull request**.
+After the successful merge, you can delete your ticket branch. Do this by scrolling to the very end of the pull-request and click on **Delete branch**.
+
+### Party, your post is finished!
+You now successfully added your new blog post including text and photos. You should be proud of your self! :D Time to party!
