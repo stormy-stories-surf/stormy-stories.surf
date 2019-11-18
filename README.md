@@ -3,6 +3,63 @@ a travel, windsurf and livestyle blog
 
 ![link broken](mediaLibrary/general/Logo.png)
 
+## Roadmap / Release Planning
+
+### v1.12.0 : Release Date 25.04.2020
+- [ ] posts/2020/travel-surf-van-bus-reise-mobil/04-25-vw-bus-transport-t4-syncro
+
+### v1.11.0 : Release Date 11.04.2020
+- [ ] posts/2018/France-Frankreich/MM_DD_Week2
+
+### v1.10.0 : Release Date 28.03.2020
+- [ ] posts/2018/France-Frankreich/MM_DD_Week1
+
+### v1.9.0 : Release Date 14.03.2020
+- [ ] posts/2018/balticSea-Ostsee/MM_DD_dazendorf
+
+### v1.8.0 : Release Date 29.02.2020
+- [ ] posts/2020/travel-surf-van-bus-reise-mobil/02-29-opel-vectra-b-caravan
+
+### v1.7.0 : Release Date 15.02.2020
+- [ ] posts/2020/travel-surf-van-bus-reise-mobil/02-15-opel-kadett-e-cc
+
+### v1.6.0 : Release Date 01.02.2020
+- [x] posts/2018/balticSea-Ostsee/03_17_dahmeshoeved
+
+### v1.5.0 : Release Date 18.01.2020
+- [ ] posts/2020/travel-surf-van-bus-reise-mobil/01-18-opel-blitz
+
+### v1.4.0 : Release Date 04.01.2019
+- [ ] posts/2017/ireland-irland/11-12-portrane-dublin
+
+### v1.3.0 : Release Date 21.12.2019
+- [ ] posts/2017/ireland-irland/11-10-magheroarty-beach-donegal-II
+
+### v1.2.0 : Release Date 21.12.2019
+- [ ] posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I
+
+### v1.1.0 : Release Date 07.12.2019
+- [ ] posts/2017/ireland-irland/11-07-spanish-point-cliffs-of-moher-mullaghmore
+
+### v1.0.0 : Release Date 23.11.2019
+- [x] pages
+  - [x] info
+    - [x] about
+    - [x] authors
+    - [x] contact
+    - [x] e-mail-newsletter
+    - [x] sticker
+  - [x] legal-information
+  - [x] privacy policy
+- [x] posts
+  - [x] 2017
+    - [x] northSea-nordsee/09_13_cuxhaven-sahlenburg-irma
+    - [x] ireland-irland/11-05-arrival-ankunft-brandon-bay
+    - [x] ireland-irland/11-06-brandon-bay-stradbally
+
+
+
+
 ## How to write a blog post
 
 ### Create a new ticket / issue at Github
