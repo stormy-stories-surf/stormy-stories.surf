@@ -5,6 +5,45 @@ a travel, windsurf and livestyle blog
 
 ## Roadmap / Release Planning
 
+### v1.25.0 : Release Date TBD
+- [ ] posts/2019/morocco-marokko/MM-DD-safi-oualidia-el-jadida
+
+### v1.24.0 : Release Date TBD
+- [ ] posts/2019/morocco-marokko/MM-DD-moulay-bouzerktoun
+
+### v1.23.0 : Release Date TBD
+- [ ] posts/2019/morocco-marokko/MM-DD-essaouria
+
+### v1.22.0 : Release Date TBD
+- [ ] posts/2019/morocco-marokko/MM-DD-sidi-kaouki
+
+### v1.21.0 : Release Date TBD
+- [ ] posts/2019/morocco-marokko/MM-DD-marrakesch-taghazout
+
+### v1.20.0 : Release Date TBD
+- [ ] posts/2019/ireland-irland/MM-DD-Dingle-Peninsula
+
+### v1.19.0 : Release Date 01.08.2020
+- [ ] posts/2020/travel-surf-van-bus-reise-mobil/04-25-adjustable-bed
+
+### v1.18.0 : Release Date 18.07.2020
+- [ ] posts/2019/bavaria-bayern/MM-DD-winter-at-Brombach-Lake
+
+### v1.17.0 : Release Date 04.07.2020
+- [ ] posts/2020/travel-surf-van-bus-reise-mobil/04-25-mercedes-sprinter-spier-aero-box
+
+### v1.16.0 : Release Date 20.06.2020
+- [ ] posts/2018/canarian-islands-kanarisch-inseln-gran-canaria/MM-DD-pozo-izquierdo-Small-Armaggedon
+
+### v1.15.0 : Release Date 06.06.2020
+- [ ] posts/2018/Canarian-Islands-Kanarisch-Inseln-Gran-Canaria/MM-DD-Pozo-Izquierdo-PWA-Pros
+
+### v1.14.0 : Release Date 23.05.2020
+- [ ] posts/2018/Canarian-Islands-Kanarisch-Inseln-Gran-Canaria/MM-DD-Pozo-Izquierdo-Training
+
+### v1.13.0 : Release Date 09.05.2020
+- [ ] posts/2018/Canarian-Islands-Kanarisch-Inseln-Gran-Canaria/MM-DD-Pozo-Izquierdo-Arrival-Ankunft
+
 ### v1.12.0 : Release Date 25.04.2020
 - [ ] posts/2020/travel-surf-van-bus-reise-mobil/04-25-vw-bus-transport-t4-syncro
 
