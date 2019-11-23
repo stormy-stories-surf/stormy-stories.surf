@@ -19,7 +19,7 @@ Eher so Windsurf-Einsteigerin, aber das hält ja niemanden ab! Ist der Meinung, 
 |                  | Bücher                |
 |                  | Musik                 |
 
-![link broken](../../../../../mediaLibrary/pages/info/authors/windsurf-stormy-stories-surf-travel-blog--info-authors-marcel-WM-35p-DSC05577_zuschnitt.jpg)
+![link broken](../../../../../mediaLibrary/pages/info/authors/windsurf-stormy-stories-surf-travel-blog-info-authors-marcel-WM-35p-DSC05577_mod.jpg)
 
 # Marcel
 
@@ -46,7 +46,7 @@ Ich bin möglichst viel mit Jana und Andre unterwegs um schöne Landschaften, ne
 |                  | Snowboarden            |
 | Musik:           | Metalcore A-Z
 
-![link broken](../../../../../mediaLibrary/pages/info/authors/windsurf-stormy-stories-surf-travel-blog-info-authors-andre-WM-35p-DSC05582.jpg)
+![link broken](../../../../../mediaLibrary/pages/info/authors/windsurf-stormy-stories-surf-travel-blog-info-authors-andre-WM-35p-DSC05582_mod.jpg)
 
 # Andre
 
