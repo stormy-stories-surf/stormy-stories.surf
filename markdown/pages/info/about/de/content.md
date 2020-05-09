@@ -7,7 +7,7 @@
 … „Verdammte Scheiße, da ist endlich eine die noch offen ist.“  
 Ich setze den Blinker und biege auf die Tankstelle – irgendwo im Nirgendwo mitten in der Nacht in Süd-West-Irland.
 
-Ich schaue links rüber zur Tanksäule. Alles was ich sehe ist ein hoch gestapelter Haufen Segel.  
+Ich schaue links rüber zur Tanksäule. Alles was ich sehe ist jedoch ein hoch gestapelter Haufen Segel.  
 „Äähm sach mal, wie viel Platz ist da noch? Stehe ich schon nah dran, oder muss ich noch weiter?“ „Ne passt, ein kleines Stück vielleicht noch – Ja genau, reicht.“
 
 Okay – ich schnalle mich ab und drehe mich zur Tür. Ein Polizeiauto fährt an uns vorbei und parkt neben einem weiteren. Daneben steht ein weiteres Polizeiauto, daneben ein weiteres und daneben noch ein paar weitere.
@@ -34,9 +34,10 @@ Zwei Wellen später schießt ein anderer Windsurfer über eine Welle und schmett
 ![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-DSC03185.JPG)
 
 … „Oh mann, der Pub sieht aber ganz schön ausgestorben aus, wollen wir da wirklich rein? Nach Individual-Betreuung durch den Wirt ist mir jetzt heute irgendwie nicht.“
- –  „Hmm, jaa oder lass uns noch mal runter zur Bucht laufen, das zerfallene Boot da am Strand, das kann man bestimmt relativ cool mit einer Langzeitaufnahme vor der Bucht und dem Ort im Hintergrund fotografieren."
 
-3 Stunden und gefühlte 10000 Versuche später -> „Krasse Scheiße, das Bild ist der Hammer und der Weg-Cider ist auch alle, lass uns zusehen, dass wir ins Bett kommen …
+"Hmm, jaa oder lass uns noch mal runter zur Bucht laufen, das zerfallene Boot da am Strand, das kann man bestimmt relativ cool mit einer Langzeitaufnahme vor der Bucht und dem Ort im Hintergrund fotografieren."
+
+3 Stunden und gefühlte 10000 Versuche später -> „Jaa, genauso hab ich mir das vorgestellt. Das Bild ist der Hammer und der Weg-Cider ist auch alle, lass uns zusehen, dass wir ins Bett kommen" …
 
 ![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-DSC04819.JPG)
 
@@ -67,7 +68,7 @@ Ich suche die nächste Nummer heraus und drücke auf den grünen Hörer :
 
 – „Okay, cool! Wann kommen wir wieder?“
 
-– „Samstag Nacht / oder Sonntag früh je nachdem.“
+– „Samstag Nacht / oder Sonntag Früh je nachdem.“
 
 – „Gut dann bis gleich“
 
@@ -86,7 +87,7 @@ Meine Güte – solche Wellen und das vollkommen ohne Sturm, waagerechten Regen 
 
 Schnell laufe ich zum nächsten Menschen auf dem Parkplatz und frage, ob es irgendwo in der Nähe möglich sei Surf-Boards zu mieten. „Generell überhaupt kein Problem – Aber ich glaube bei den Bedingungen wirst du es schwer haben einen offenen Laden zu finden. Die werden alle selbst unterwegs sein. Aber hey – nimm doch einfach meins – ich bin für heute fertig“.
 
-Ich werfe einen Blick auf das nagelneue Board, dann einen weiteren zurück zum Strand und lehne dann dankend ab und mache mich auf den Weg in den nächsten Ort. Beim zweiten Anlauf treffe ich jemanden, der sich gerade hektisch mit dem Abschließen des eigenen Surfshops beschäftigt.
+Ich werfe einen Blick auf das nagelneue Board, dann einen weiteren zurück zum Strand und denke an mein eigenes niedriges Niveau auf Boards ohne Segel zu surfen. "Shit!" denke ich : "Wie das Board wohl aussieht, wenn ich mit ihm fertig bin?" Ich lehne dann dankend ab und mache mich auf den Weg in den nächsten Ort. Beim zweiten Anlauf treffe ich jemanden, der sich gerade hektisch mit dem Abschließen des eigenen Surfshops beschäftigt.
 
 Auf die Frage, ob ich bei ihm ein Surf-Board leihen könnte, rennt er nur schnell in den nächsten Schuppen, drückt mir eines in die Hand und springt dann hastig in seinen Geländewagen. Als ich ihm noch nachrufe, was es denn kosten solle, winkt er nur ab und nuschelt etwas von „Komm die nächsten Tage einfach mal wieder vorbei und jetzt schnell aufs Wasser mit dir“ …
 
@@ -100,13 +101,13 @@ Es geht darum, wie das Wasser in einer rasenden Geschwindigkeit unter einem vorb
 
 ![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-1518380076_3_1500.JPG)
 
-Vielleicht geht es auch einmal um ganz andere Dinge.   Vielleicht auch um Dinge, die rein überhaupt garnichts mit all dem zuvor Genannten zu tun haben.
+Vielleicht geht es auch einmal um ganz andere Dinge. Vielleicht auch um Dinge, die rein überhaupt garnichts mit all dem zuvor Genannten zu tun haben.
 
 In aller Regel geht es aber wahrscheinlich immer um stürmische Geschichten, Ideen und Gedanken. Wobei „stürmisch“ vermutlich in den stürmischsten Arten und Weisen interpretiert werden wird und auch öfters rein garnichts mit bewegter Luft oder Wasser zu tun haben könnte.
 
-Ziemlich sicher geht es ziemlich viel ums Fotografieren.   Vielleicht auch mal ums Filmen. In beiden Fällen geht es wahrscheinlich meistens eher um die Ergebnisse der Praxis als um die Theorie. In unserem stürmischen Blog scheint aber generell nichts ausgeschlossen, sodass man auf alles und auch auf nichts vorbereitet sein sollte.
+Ziemlich sicher geht es ziemlich viel ums Fotografieren. Vielleicht auch mal ums Filmen. In beiden Fällen geht es wahrscheinlich meistens eher um die Ergebnisse der Praxis als um die Theorie. In unserem stürmischen Blog scheint aber generell nichts ausgeschlossen, sodass man auf alles und auch auf nichts vorbereitet sein sollte.
 
-Ich glaube, es geht hier auch darum ein paar neue Dinge auszuprobieren. Es geht darum bestimmte Hobbies und Vorlieben  miteinander zu verknüpfen und zu schauen wie man in diesen besser werden kann.
+Ich glaube, es geht hier auch darum ein paar neue Dinge auszuprobieren. Es geht darum bestimmte Hobbys und Vorlieben miteinander zu verknüpfen und zu schauen wie man in diesen besser werden kann.
 
 ![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-1476248710_4_1500.JPG)
 
