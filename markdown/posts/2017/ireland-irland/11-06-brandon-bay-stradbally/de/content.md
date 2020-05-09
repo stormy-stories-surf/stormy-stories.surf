@@ -107,7 +107,7 @@ Und das Ganze immer mit der Gewissheit, dass es in dieser sichelförmigen Bucht 
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09502.JPG)
 
-Das gab es dann auch. Am Inch Beach gibt es perfekte Burger um alle Reserven wieder aufzufüllen. Das Restaurant hier liegt direkt am Strand, der nebenbei bemerkt bei Side-Off auch einen sehr guten Wave-Spot mit Parkmöglichkeiten direkt auf dem Strand bietet. Auch Delfine sollen hier hin und wieder schon gesichtet worden sein..
+Das gab es dann auch. Am Inch Beach gibt es perfekte Burger um alle Reserven wieder aufzufüllen. Das Restaurant hier liegt direkt am Strand, der nebenbei bemerkt bei Side-Off auch einen sehr guten Wave-Spot mit Parkmöglichkeiten direkt auf dem Strand bietet. Von beidem konnte ich mich bereits 2016 überzeugen. Auch Delfine sollen hier hin und wieder schon gesichtet worden sein.
 
 <p float="left">
   <img src="../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09472.JPG" width="49%" />
