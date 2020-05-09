@@ -5,82 +5,85 @@ a travel, windsurf and livestyle blog
 
 ## Roadmap / Release Planning
 
-### v1.25.0 : Release Date TBD
+### v1.26.0 : Release Date TBD
 - [ ] posts/2019/morocco-marokko/MM-DD-safi-oualidia-el-jadida
 
-### v1.24.0 : Release Date TBD
+### v1.25.0 : Release Date TBD
 - [ ] posts/2019/morocco-marokko/MM-DD-moulay-bouzerktoun
 
-### v1.23.0 : Release Date TBD
+### v1.24.0 : Release Date TBD
 - [ ] posts/2019/morocco-marokko/MM-DD-essaouria
 
-### v1.22.0 : Release Date TBD
+### v1.23.0 : Release Date TBD
 - [ ] posts/2019/morocco-marokko/MM-DD-sidi-kaouki
 
-### v1.21.0 : Release Date TBD
+### v1.22.0 : Release Date TBD
 - [ ] posts/2019/morocco-marokko/MM-DD-marrakesch-taghazout
 
-### v1.20.0 : Release Date TBD
+### v1.21.0 : Release Date TBD
 - [ ] posts/2019/ireland-irland/MM-DD-Dingle-Peninsula
 
-### v1.19.0 : Release Date 01.08.2020
-- [ ] posts/2020/travel-surf-van-bus-reise-mobil/04-25-adjustable-bed
+### v1.20.0 : Release Date TBD
+- [ ] posts/2020/surf-van-bus-campervan-motorhome-expedition-reise-mobil/04-25-adjustable-bed
 
-### v1.18.0 : Release Date 18.07.2020
+### v1.19.0 : Release Date TBD
 - [ ] posts/2019/bavaria-bayern/MM-DD-winter-at-Brombach-Lake
 
-### v1.17.0 : Release Date 04.07.2020
-- [ ] posts/2020/travel-surf-van-bus-reise-mobil/04-25-mercedes-sprinter-spier-aero-box
+### v1.18.0 : Release Date TBD
+- [ ] posts/2020/surf-van-bus-campervan-motorhome-expedition-reise-mobil/04-25-mercedes-sprinter-spier-aero-box
 
-### v1.16.0 : Release Date 20.06.2020
+### v1.17.0 : Release Date TBD
 - [ ] posts/2018/canarian-islands-kanarisch-inseln-gran-canaria/MM-DD-pozo-izquierdo-Small-Armaggedon
 
-### v1.15.0 : Release Date 06.06.2020
+### v1.16.0 : Release Date TBD
 - [ ] posts/2018/Canarian-Islands-Kanarisch-Inseln-Gran-Canaria/MM-DD-Pozo-Izquierdo-PWA-Pros
 
-### v1.14.0 : Release Date 23.05.2020
+### v1.15.0 : Release Date TBD
 - [ ] posts/2018/Canarian-Islands-Kanarisch-Inseln-Gran-Canaria/MM-DD-Pozo-Izquierdo-Training
 
-### v1.13.0 : Release Date 09.05.2020
+### v1.14.0 : Release Date TBD
 - [ ] posts/2018/Canarian-Islands-Kanarisch-Inseln-Gran-Canaria/MM-DD-Pozo-Izquierdo-Arrival-Ankunft
 
-### v1.12.0 : Release Date 25.04.2020
-- [ ] posts/2020/travel-surf-van-bus-reise-mobil/04-25-vw-bus-transport-t4-syncro
+### v1.13.0 : Release Date TBD
+- [ ] posts/2020/surf-van-bus-campervan-motorhome-expedition-reise-mobil/04-25-vw-bus-transport-t4-syncro
 
-### v1.11.0 : Release Date 11.04.2020
+### v1.12.0 : Release Date TBD
 - [ ] posts/2018/France-Frankreich/MM_DD_Week2
 
-### v1.10.0 : Release Date 28.03.2020
+### v1.11.0 : Release Date TBD
 - [ ] posts/2018/France-Frankreich/MM_DD_Week1
 
-### v1.9.0 : Release Date 14.03.2020
+### v1.10.0 : Release Date TBD
 - [ ] posts/2018/balticSea-Ostsee/MM_DD_dazendorf
 
-### v1.8.0 : Release Date 29.02.2020
-- [ ] posts/2020/travel-surf-van-bus-reise-mobil/02-29-opel-vectra-b-caravan
+### v1.9.0 : Release Date TBD
+- [ ] posts/2020/surf-van-bus-campervan-motorhome-expedition-reise-mobil/02-29-opel-vectra-b-caravan
 
-### v1.7.0 : Release Date 15.02.2020
-- [ ] posts/2020/travel-surf-van-bus-reise-mobil/02-15-opel-kadett-e-cc
+### v1.8.0 : Release Date TBD
+- [ ] posts/2020/surf-van-bus-campervan-motorhome-expedition-reise-mobil/02-15-opel-kadett-e-cc
 
-### v1.6.0 : Release Date 01.02.2020
+### v1.7.0 : Release Date TBD
 - [x] posts/2018/balticSea-Ostsee/03_17_dahmeshoeved
 
-### v1.5.0 : Release Date 18.01.2020
-- [ ] posts/2020/travel-surf-van-bus-reise-mobil/01-18-opel-blitz
+### v1.6.0 : Release Date 25.07.2020
+- [ ] posts/2020/surf-van-bus-campervan-motorhome-expedition-reise-mobil/07-25-opel-blitz
 
-### v1.4.0 : Release Date 04.01.2019
+### v1.5.0 : Release Date 11.07.2020
 - [ ] posts/2017/ireland-irland/11-12-portrane-dublin
 
-### v1.3.0 : Release Date 21.12.2019
+### v1.4.0 : Release Date 27.06.2020
 - [ ] posts/2017/ireland-irland/11-10-magheroarty-beach-donegal-II
 
-### v1.2.0 : Release Date 21.12.2019
+### v1.3.0 : Release Date 13.06.2020
 - [ ] posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I
 
-### v1.1.0 : Release Date 07.12.2019
+### v1.2.0 : Release Date 30.05.2020
 - [ ] posts/2017/ireland-irland/11-07-spanish-point-cliffs-of-moher-mullaghmore
 
-### v1.0.0 : Release Date 23.11.2019
+### v1.1.0 : Release Date 16.05.2020
+- [x] ireland-irland/11-06-brandon-bay-stradbally
+
+### v1.0.1 : Release Date 10.05.2020
 - [x] pages
   - [x] info
     - [x] about
@@ -94,9 +97,6 @@ a travel, windsurf and livestyle blog
   - [x] 2017
     - [x] northSea-nordsee/09_13_cuxhaven-sahlenburg-irma
     - [x] ireland-irland/11-05-arrival-ankunft-brandon-bay
-    - [x] ireland-irland/11-06-brandon-bay-stradbally
-
-
 
 
 ## How to write a blog post
