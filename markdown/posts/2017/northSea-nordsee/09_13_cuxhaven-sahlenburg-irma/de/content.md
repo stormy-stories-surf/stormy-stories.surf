@@ -5,7 +5,7 @@
 ![link broken](../../../../../../mediaLibrary/posts/2017/northSea-nordsee/09_13_cuxhaven-sahlenburg-irma/windsurf-stormy-stories-surf-travel-blog-northSea-nordsee-09_13_cuxhaven-sahlenburg-irma-WM-35p-DSC07655.jpg)
 
 Die Wetterkarte zeigte längere Zeit schon ein richtig schönes stabiles "Stürmchen".
-Mit Blick auf dem Kalender wurde dann aber schnell klar, dass ein Tag Urlaub wohl nicht drin sein würde.
+Mit Blick auf den Kalender wurde dann aber schnell klar, dass ein Tag Urlaub wohl nicht drin sein würde.
 Ein paar Überstunden abfeiern half dann aber immerhin um noch einen Spontan-Trip nach Sahlenburg möglich zu machen.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/northSea-nordsee/09_13_cuxhaven-sahlenburg-irma/windsurf-stormy-stories-surf-travel-blog-northSea-nordsee-09_13_cuxhaven-sahlenburg-irma-WM-35p-DSC07658.jpg)

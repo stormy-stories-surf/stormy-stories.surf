@@ -9,7 +9,7 @@ Nach dem Blick auf die Vorhersage entschieden wir uns unsere Unterkunft noch ein
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09042.JPG)
 
-Dann ging es los ins Auto und einmal die Spots abchecken. Zu erst ging es in die Brandon Bay an die Spots Mossies und Dumps. Hier wehte es allerdings etwas zu sehr auflandig und die Wellen sahen garnicht so aus, wie wir uns das vorgestellt hatten. Irgendwie deutlich zu klein und ungeordnet. Mit einem Blick in die sichelförmige Brandon Bay entschieden wir uns weiter Richtung Süden zu fahren. Hier sollte der Wind mit etwas Glück Side bis Side-Off kommen.  
+Dann ging es los ins Auto und einmal die Spots abchecken. Zu erst ging es in die Brandon Bay an die Spots Mossies und Dumps. Hier wehte es allerdings etwas zu sehr auflandig und die Wellen sahen garnicht so aus, wie wir uns das vorgestellt hatten. Irgendwie deutlich zu klein und ungeordnet. Mit einem Blick in die sichelförmige Brandon Bay entschieden wir uns weiter Richtung Süden zu fahren. Hier sollte der Wind mit etwas Glück Side-Shore bis Side-Off-Shore kommen.  
 Also ging es wieder ins Auto und ab in Richtung Castlegregory. Vorbei an der Marien-Statue und dann rechts ab in Richtung Dingle. Hier fährt man auf einer Anhöhe in Richtung Stradbally und kann aus dem Fenster schön über die ganze Brandon Bay blicken. Im Hintergrund sieht man etwas entfernt den Mount Brandon, der am Ende der Brandon Bay liegt.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09064.JPG)
@@ -30,7 +30,7 @@ Wir unterhielten uns schon über unsere größeren Segel und dass man es einfach
   <img src="../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09139.JPG" width="49%" />
 </p>
 
-Kurze Zeit später hatten wir die Zufahrt gefunden und passender Weise stapfte der irische Local gerade aus dem Wasser. Er erzählte uns, dass er nun leider wieder los müsse, weil seine Mittagspause nun vorbei sei und erkundigte sich nach unserer kleinsten Segelgröße. 3.5 und 3.7 passten für uns erst einmal überhaupt nicht zu dem, was wir dort am Strand sahen - aber naja. Wir dankten für den Rat, genau diese Segel aufzubauen und fuhren zurück zu unserer Unterkunft um das Auto zu beladen.
+Kurze Zeit später hatten wir die Zufahrt gefunden und passender Weise stapfte der irische Local gerade aus dem Wasser. Er erzählte uns, dass er nun leider wieder los müsse, weil seine Mittagspause nun vorbei sei und erkundigte sich nach unserer kleinsten Segelgröße. 3.5 und 3.7 Quadratmeter passten für uns erst einmal überhaupt nicht zu dem, was wir dort am Strand sahen - aber naja. Wir dankten für den Rat, genau diese Segel aufzubauen und fuhren zurück zu unserer Unterkunft um das Auto zu beladen.
 
 <p float="left">
   <img src="../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09102.JPG" width="49%" />
@@ -41,7 +41,7 @@ Zurück am Spot schienen die Bedingungen etwas besser geworden zu sein. 3.7 schi
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09060.JPG)
 
-Wir waren komplett alleine an einem mehrere Kilometer langen Strand an dem man das Ende der perfekten parallelen Lines oft in der Ferne nicht erkennen konnte. Fast ein bisschen unwirklich, gerade wenn man sich dann einmal an die überquellenden Parkplätze der Ostsee zurückerinnert. Und das bei Onshore-Wind und kleinen sogenannten 'Wellen'.
+Wir waren komplett alleine an einem mehrere Kilometer langen Strand an dem man das Ende der perfekten parallelen Lines oft in der Ferne nicht erkennen konnte. Fast ein bisschen unwirklich, vor allem wenn man sich dann einmal an die überquellenden Parkplätze der Ostsee zurückerinnert und das bei Onshore-Wind und den kleinen sogenannten 'Wellen'.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09150.JPG)
 
@@ -63,11 +63,11 @@ Ebenso erging es mir bei den nächsten Versuchen durch den Shore-Break zu kommen
   <img src="../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09195.JPG" width="49%" />
 </p>
 
-Doch auch selbst als der Wind im späteren Verlauf des Tages immer mehr zu nahm, war es irgendwie schwierig durch den relativ kraftvollen Shore-Break zu kommen. Hier wiederum war die Länge der Wellen nicht gerade von Vorteil, da es nahezu unmöglich war komplett am brechenden Teil der Wellen vorbei zu fahren.
+Doch auch selbst als der Wind im späteren Verlauf des Tages immer mehr zunahm, war es irgendwie schwierig durch den relativ kraftvollen Shore-Break zu kommen. Hier wiederum war die Länge der Wellen nicht gerade von Vorteil, da es nahezu unmöglich war komplett am brechenden Teil der Wellen vorbei zu fahren.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09252.JPG)
 
-So ging es dann also immer und immer wieder ab aufs Wasser und in den meisten Fällen dann spätestens bei der letzen zu querenden Welle ab in die Waschmaschine. Hier bekam man dann mit aller Wucht die tausenden Kilometer Anlauf der Atlantikwellen zu spüren. Einfach nicht vergleichbar mit dem was man von Nord - und Ostsee gewöhnt ist.
+So ging es dann also immer und immer wieder ab aufs Wasser und in den meisten Fällen dann spätestens bei der letzen zu querenden Welle ab in die Waschmaschine. Hier bekam man dann mit aller Wucht die tausenden Kilometer Anlauf der Atlantikwellen zu spüren. Das war einfach nicht vergleichbar mit dem, was wir von Nord - und Ostsee gewöhnt waren.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09276.JPG)
 
@@ -82,7 +82,7 @@ Auch unser italienischer Freund schüttelte bei dem Blick auf die 3.7er Segel de
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09213.JPG)
 
-Nach einiger Zeit schluckte die Flut dann leider auch den kompletten Sandstrand und hinterließ einzig einen deutlich ungemütlicheren Ausstieg über große runde Steine. Der Wind ballerte mittlerweile aus allen Rohren. Die Wellen wurden immer größer. Jeder Versuch die Berge an Weißwasser zu durchqueren raubte einem für die nächsten 15 Minuten jegliche Energiereserven. Und selbst Steine oberhalb der fünf-Kilo-Marke wurden vom Sog der Wellen wieder ins Meer gezogen und dann zurück an den Strand gerollt.
+Nach einiger Zeit schluckte die Flut dann leider auch den kompletten Sandstrand und hinterließ einzig einen deutlich ungemütlicheren Ausstieg über große runde Steine. Der Wind ballerte mittlerweile aus allen Rohren. Die Wellen wurden immer größer. Jeder Versuch die Berge an Weißwasser zu durchqueren raubte einem für die nächsten 15 Minuten jegliche Energiereserven. Und selbst Steine oberhalb der fünf-Kilo-Marke wurden vom Sog der Wellen wieder ins Meer gezogen und dann geräuschvoll murmelnd zurück an den Strand gerollt.
 
 <p float="left">
   <img src="../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09393.JPG" width="49%" />
@@ -99,7 +99,7 @@ Nach einiger Zeit schluckte die Flut dann leider auch den kompletten Sandstrand 
   <img src="../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09180.JPG" width="49%" />
 </p>
 
-Doch trotz allem machte es einfach unglaublich viel Spaß. Jeder Sprung den dann man gerade noch über die gleich brechende Welle schaffte, jede Welle die man abreiten konnte machte 10, 20, wsl. 100 Waschgänge wieder wett. Jedes mal, wenn es wieder Richtung Ufer ging, sah man auf den endlosen Strand und die bergige grüne Landschaft die sich hinter ihm erstreckte. Die Sonne tauchte alles in eine traumhafte Szenerie und leuchtete in die zwei - vier Meter hohe Gischt die von den Wellenkämmen abgerissen wurde.
+Doch trotz allem machte es einfach unglaublich viel Spaß. Jeder Sprung, den dann man gerade noch über die gleich brechende Welle schaffte, jede Welle die man abreiten konnte machte 10, 20, wsl. 100 Waschgänge wieder wett. Jedes mal, wenn es wieder Richtung Ufer ging, sah man auf den endlosen Strand und die bergige grüne Landschaft die sich hinter ihm erstreckte. Die Sonne tauchte alles in eine traumhafte Szenerie und leuchtete in die zwei - vier Meter hohe Gischt die von den Wellenkämmen abgerissen wurde.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09439.JPG)
 
@@ -107,7 +107,7 @@ Und das Ganze immer mit der Gewissheit, dass es in dieser sichelförmigen Bucht 
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09502.JPG)
 
-Das gab es dann auch. Am Inch Beach gibt es perfekte Burger um alle Reserven wieder aufzufüllen. Das Restaurant hier liegt direkt am Strand, der nebenbei bei Side-Off auch einen sehr guten Wave-Spot mit Parkmöglichkeiten direkt auf dem Strand bietet. Auch Delfine sollen hier hin und wieder schon gesichtet worden sein..
+Das gab es dann auch. Am Inch Beach gibt es perfekte Burger um alle Reserven wieder aufzufüllen. Das Restaurant hier liegt direkt am Strand, der nebenbei bemerkt bei Side-Off auch einen sehr guten Wave-Spot mit Parkmöglichkeiten direkt auf dem Strand bietet. Von beidem konnte ich mich bereits 2016 überzeugen. Auch Delfine sollen hier hin und wieder schon gesichtet worden sein.
 
 <p float="left">
   <img src="../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09472.JPG" width="49%" />
