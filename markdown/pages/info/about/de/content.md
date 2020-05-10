@@ -18,7 +18,7 @@ Ich denke kurz an unseren winzigen Mietwagen, der überladener kaum sein könnte
 Ich drehe mich wieder zurück, um mit meinem Bruder einen bedeutenden Blick zu tauschen.  
 Nach dem ich erneut nichts außer Segeltaschen sehe, sage ich: „Alter, hier ist alles voll mit Polizei. Lass uns zusehen, dass wir hier schnell wieder weg kommen“.
 
-Etwas zögerlich steige ich aus, hebe die Hand und sag kurz „Hi“. Der Trupp Uniformierter grüßt freundlich zurück und geht dann geschlossen in das Gebäude „einen Kaffe trinken“ ...
+Etwas zögerlich steige ich aus, hebe die Hand und sag kurz „Hi“. Der Trupp Uniformierter grüßt freundlich zurück und geht dann geschlossen in das Gebäude „einen Kaffee trinken“ ...
 
 ![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-DSC04304.JPG)
 
