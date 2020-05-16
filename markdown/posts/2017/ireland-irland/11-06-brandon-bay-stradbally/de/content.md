@@ -41,7 +41,7 @@ Zurück am Spot schienen die Bedingungen etwas besser geworden zu sein. 3.7 schi
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09060.JPG)
 
-Wir waren komplett alleine an einem mehrere Kilometer langen Strand an dem man das Ende der perfekten parallelen Lines oft in der Ferne nicht erkennen konnte. Fast ein bisschen unwirklich, vor allem wenn man sich dann einmal an die überquellenden Parkplätze der Ostsee zurückerinnert und das bei Onshore-Wind und den kleinen sogenannten 'Wellen'.
+Wir waren komplett alleine an einem mehrere Kilometer langen Strand, an dem man das Ende der perfekten parallelen Lines oft in der Ferne nicht erkennen konnte. Fast ein bisschen unwirklich, vor allem wenn man sich dann einmal an die überquellenden Parkplätze der Ostsee zurückerinnert und das bei Onshore-Wind und den kleinen sogenannten „Wellen“.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09150.JPG)
 
@@ -67,11 +67,11 @@ Doch auch selbst als der Wind im späteren Verlauf des Tages immer mehr zunahm, 
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09252.JPG)
 
-So ging es dann also immer und immer wieder ab aufs Wasser und in den meisten Fällen dann spätestens bei der letzen zu querenden Welle ab in die Waschmaschine. Hier bekam man dann mit aller Wucht die tausenden Kilometer Anlauf der Atlantikwellen zu spüren. Das war einfach nicht vergleichbar mit dem, was wir von Nord - und Ostsee gewöhnt waren.
+So ging es dann also immer und immer wieder ab aufs Wasser und in den meisten Fällen dann spätestens bei der letzten zu querenden Welle ab in die Waschmaschine. Hier bekam man dann mit aller Wucht die tausenden Kilometer Anlauf der Atlantikwellen zu spüren. Das war einfach nicht vergleichbar mit dem, was wir von Nord - und Ostsee gewohnt waren.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09276.JPG)
 
-Mit zunehmenden Wind und durch die Flut größer werdenden Wellen wurde auch der Strand zunehmend voller. Ein weiterer Surf-Tourist aus Italien und zwei Locals teilten sich nun mit uns den Spot.
+Mit zunehmenden Wind und durch die Flut größer werdenden Wellen wurde auch der Strand zunehmend „voller“. Ein weiterer Surf-Tourist aus Italien und zwei Locals teilten sich nun mit uns den Spot.
 
 <p float="left">
   <img src="../../../../../../mediaLibrary/posts/2017/ireland-irland/11-06-brandon-bay-stradbally/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-06-brandon-bay-stradbally-WM-35p-DSC09350.JPG" width="49%" />
