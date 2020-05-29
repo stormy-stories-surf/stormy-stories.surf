@@ -16,7 +16,7 @@ Die dazugehörigen Fahrer stehen zehn Meter entfernt und schauen interessiert zu
 Ich denke kurz an unseren winzigen Mietwagen, der überladener kaum sein könnte. In jeder Ecke bis zum Dach vollgestopft mit Windsurf-Equipment. Das Dach selbst eingedrückt unter der Last der Boards die sich darauf stapeln.
 
 Ich drehe mich wieder zurück, um mit meinem Bruder einen bedeutenden Blick zu wechseln.  
-Nach dem ich erneut nichts außer Segeltaschen sehe, sage ich: „Alter, hier ist alles voll mit Polizei. Lass uns zusehen, dass wir hier schnell wieder weg kommen“.
+Nachdem ich erneut nichts außer Segeltaschen sehe, sage ich: „Alter, hier ist alles voll mit Polizei. Lass uns zusehen, dass wir hier schnell wieder weg kommen“.
 
 Etwas zögerlich steige ich aus, hebe die Hand und sag kurz „Hi“. Der Trupp Uniformierter grüßt freundlich zurück und geht dann geschlossen in das Gebäude „einen Kaffee trinken“ ...
 
