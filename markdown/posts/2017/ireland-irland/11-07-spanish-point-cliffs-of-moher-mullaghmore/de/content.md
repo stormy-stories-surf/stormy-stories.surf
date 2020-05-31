@@ -17,9 +17,10 @@ In Stradbally angekommen blickten wir etwas ratlos aufs Meer. Noch immer hatten 
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-07-spanish-point-cliffs-of-moher-mullaghmore/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-07-spanish-point-cliffs-of-moher-mullaghmore-WM-35p-DSC09534.jpg)
 
-Okay, somit dann schnell ins Auto, noch einen letzten Blick auf die traumhafte Szenerie der sonnendurchfluteten Brandon Bay und auf Richtung Norden.
+Okay, somit dann schnell ins Auto, noch einen letzten Blick auf die traumhafte Szenerie der sonnendurchfluteten Brandon Bay und auf in Richtung Norden.
 Wie auch schon im vorherigen Jahr entschieden wir uns statt über Castleisland und Limerick für den 70 Kilometer kürzeren Weg über Tralee, Listowel und dann mit der Fähre von Tarbert nach Killimer. Die Überquerung der Grenze vom County Kerry ins County Clare auf dem Wasserweg dauert ca. 20 Minuten, kostet etwa 20€ für ein normales Auto und ist in der Regel mindestens stündlich möglich.
-Zeit verbringt man hierbei ziemlich genau so viel wie bei der Fahrt mit dem Auto über Limerick. Uns gefällt diese Variante jedoch allein schon wegen der schöneren Aussicht und der entspannten Schifffahrt besser. Über die Fährzeiten sollte man sich jedoch je nach eigenem Entspannungsmodus und Wetter vorher informieren. In unserem Fall bedeutete das Nicht-Informieren dann, 15-20 Minuten in der irischen Mittags-Sonne entspannte Musik hören zu müssen. Es gibt denke ich Schlimmeres.
+
+Zeit verbringt man hierbei ziemlich genau so viel wie bei der Fahrt mit dem Auto über Limerick. Uns gefällt diese Variante jedoch allein schon wegen der schöneren Aussicht und der entspannten Schifffahrt besser. Über die Fährzeiten sollte man sich jedoch je nach eigenem Entspannungsmodus, Saison und Wetter vorher informieren. Da wir mittlerweile aber vollkommen im irischen Entspannungsmodus angekommen waren, informierten wir uns nicht vorher. Wozu auch, schließlich hatten wir ja Zeit und wollten uns nicht zu irgendwelchen Abfahrzeiten hetzen, sondern lieber die Fahrt durchs saftige Grün in Ruhe genießen. In unserem Fall bedeutete das Nicht-Informieren dann 15-20 Minuten in der irischen Mittags-Sonne entspannte Musik hören zu müssen. Es gibt denke ich Schlimmeres.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-07-spanish-point-cliffs-of-moher-mullaghmore/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-07-spanish-point-cliffs-of-moher-mullaghmore-WM-35p-DSC09536.jpg)
 
@@ -35,6 +36,9 @@ Von Killimer ging es dann bei sonnig-wolkigem Wetter weiter in Richung Lahinch. 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-07-spanish-point-cliffs-of-moher-mullaghmore/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-07-spanish-point-cliffs-of-moher-mullaghmore-WM-35p-DSC09568.jpg)
 
 Fündig wurden wir in einem günstigen und gemütlichen B&B im Ortsanfang von Lahinch auf einer Anhöhe in mitten einiger Mobil-Heime (https://www.clareireland.net/coachhouse) . Und auch hier schienen wir Anfang November wieder die einzigen Gäste zu sein und schliefen somit für 25€ pro Person im besten Zimmer des Hauses.
+
+<hr style: dashed>
+
 Von hier aus sollte unsere Reise am nächsten Tag weiter gehen. Unser finales Ziel war weiterhin Magheroarty Beach im Norden Donegals. Die Vorhersage schien hier weiterhin stabil zu bleiben und auf dem Weg dorthin sollte auch noch Zeit für die ein oder andere Surfer-Sehenswürdigkeit sein.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-07-spanish-point-cliffs-of-moher-mullaghmore/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-07-spanish-point-cliffs-of-moher-mullaghmore-WM-35p-DSC09577.jpg)
