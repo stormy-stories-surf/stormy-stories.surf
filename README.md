@@ -77,8 +77,8 @@ a travel, windsurf and livestyle blog
 ### v1.3.0 : Release Date 13.06.2020
 - [ ] posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I
 
-### v1.2.0 : Release Date 30.05.2020
-- [ ] posts/2017/ireland-irland/11-07-spanish-point-cliffs-of-moher-mullaghmore
+### v1.2.0 : Release Date 31.05.2020
+- [x] posts/2017/ireland-irland/11-07-spanish-point-cliffs-of-moher-mullaghmore
 
 ### v1.1.0 : Release Date 16.05.2020
 - [x] ireland-irland/11-06-brandon-bay-stradbally
