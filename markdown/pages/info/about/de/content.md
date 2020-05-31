@@ -10,15 +10,15 @@ Ich setze den Blinker und biege auf die Tankstelle – irgendwo im Nirgendwo mit
 Ich schaue links rüber zur Tanksäule. Alles was ich sehe ist jedoch ein hoch gestapelter Haufen Segel.  
 „Äähm sach mal, wie viel Platz ist da noch? Stehe ich schon nah dran, oder muss ich noch weiter?“ „Ne passt, ein kleines Stück vielleicht noch – Ja genau, reicht.“
 
-Okay – ich schnalle mich ab und drehe mich zur Tür. Ein Polizeiauto fährt an uns vorbei und parkt neben einem weiteren. Daneben steht ein weiteres Polizeiauto, daneben ein weiteres und daneben noch ein paar weitere.
+Okay – ich schnalle mich ab und drehe mich zur Tür. Ein Polizeiauto fährt an uns vorbei und parkt neben einem Weiteren. Daneben steht ein weiteres Polizeiauto, daneben ein Weiteres und daneben noch ein paar Weitere.
 
 Die dazugehörigen Fahrer stehen zehn Meter entfernt und schauen interessiert zu uns herüber.  
 Ich denke kurz an unseren winzigen Mietwagen, der überladener kaum sein könnte. In jeder Ecke bis zum Dach vollgestopft mit Windsurf-Equipment. Das Dach selbst eingedrückt unter der Last der Boards die sich darauf stapeln.
 
-Ich drehe mich wieder zurück, um mit meinem Bruder einen bedeutenden Blick zu tauschen.  
-Nach dem ich erneut nichts außer Segeltaschen sehe, sage ich: „Alter, hier ist alles voll mit Polizei. Lass uns zusehen, dass wir hier schnell wieder weg kommen“.
+Ich drehe mich wieder zurück, um mit meinem Bruder einen bedeutenden Blick zu wechseln.  
+Nachdem ich erneut nichts außer Segeltaschen sehe, sage ich: „Alter, hier ist alles voll mit Polizei. Lass uns zusehen, dass wir hier schnell wieder weg kommen“.
 
-Etwas zögerlich steige ich aus, hebe die Hand und sag kurz „Hi“. Der Trupp Uniformierter grüßt freundlich zurück und geht dann geschlossen in das Gebäude „einen Kaffee trinken“ ...
+Etwas zögerlich steige ich aus, hebe die Hand und sage kurz „Hi“. Der Trupp Uniformierter grüßt freundlich zurück und geht dann geschlossen in das Gebäude „einen Kaffee trinken“ ...
 
 ![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-DSC04304.JPG)
 
@@ -30,7 +30,7 @@ Dann knallt jemand über die nächste Welle, steigt hoch in die Luft, schmettert
 
 ![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-DSC03185.JPG)
 
-... Mit gefühlt unendlicher Geschwindigkeit rase ich auf ein Welle zu. Jetzt wäre es wahrscheinlich sinnvoll in den Fußschlaufen zu sein oder im Trapez oder irgendwas.. Etwas bedrohlich geht es bergauf, aber zum Bremsen ist es jetzt auch zu spät.. Dann ist er weg, der Boden unter meinen Füßen, oder besser gesagt das Wasser unter meinem Board.. Gefühlte Ewigkeiten geht es durch die Luft - zum ersten Mal für mich mit einem Surfboard. Und dann - KLATSCH - geht es wieder zurück ins Wasser. Das Board bricht seitlich aus. Wirklich kontrollieren lässt es sich nun nicht mehr. Dann reisst das Segel einmal kräftig nach vorne und katapultier mich - ZACK - weg in Fahrrichtung nach vorne.. Wow das war wirklich krass. Mein ganzer Körper ist überflutet von Adrenalin, so sehr, dass ich noch Stunden später über nichts anderes mehr reden kann ...
+... Mit gefühlt unendlicher Geschwindigkeit rase ich auf ein Welle zu. Jetzt wäre es wahrscheinlich sinnvoll in den Fußschlaufen zu sein oder im Trapez oder irgendwas.. Etwas bedrohlich geht es bergauf, aber zum Bremsen ist es jetzt auch zu spät.. Dann ist er weg, der Boden unter meinen Füßen, oder besser gesagt das Wasser unter meinem Board.. Gefühlte Ewigkeiten geht es durch die Luft - zum ersten Mal für mich mit einem Surfboard. Und dann - KLATSCH - geht es wieder zurück ins Wasser. Das Board bricht seitlich aus. Wirklich kontrollieren lässt es sich nun nicht mehr. Dann reisst das Segel einmal kräftig nach vorne und katapultiert mich - ZACK - weg in Fahrrichtung nach vorne.. Wow das war wirklich krass. Mein ganzer Körper ist überflutet von Adrenalin, so sehr, dass ich noch Stunden später über nichts anderes mehr reden kann ...
 
 ... Der Wecker klingelt. Genau genommen bin ich noch ziemlich müde. Aber naja, was soll's. Ich mache die Augen auf und dann gleich schnell wieder zu, dann noch einmal vorsichtig wieder auf. Mann ist das hell. Ich setzte mich auf und schaue aus dem Fenster - Schneegestöber - "Naja", denke ich : "hilft ja nix. Dann wird das Umziehen heute wohl wieder besonders angenehm." ...
 
@@ -43,7 +43,7 @@ Ich aktualisiere sie noch mal, fasse einen Entschluss und setze mich dann schnel
 
 Sekunden später klingelt mein Handy:
 
-– „Moin... Wie siehts aus? Wir sind ab morgen in Holland. Seid ihr dabei? Die Vorhersage sieht echt krass aus und da ist so ein Wavespot den wir noch mal.. Ääh, warte mal kurz – da ruft mich gerade der Kunde für meinen Termin morgen an, ich rufe dich gleich zurück, okay??“
+– „Moin... Wie sieht's aus? Wir sind ab morgen in Holland. Seid ihr dabei? Die Vorhersage sieht echt krass aus und da ist so ein Wavespot den wir noch mal.. Ääh, warte mal kurz – da ruft mich gerade der Kunde für meinen Termin morgen an, ich rufe dich gleich zurück, okay??“
 
 – „Na klar, bis gleich“.
 
@@ -84,9 +84,9 @@ Meine Güte – solche Wellen und das vollkommen ohne Sturm, waagerechten Regen 
 
 Schnell laufe ich zum nächsten Menschen auf dem Parkplatz und frage, ob es irgendwo in der Nähe möglich sei Surf-Boards zu mieten. „Generell überhaupt kein Problem – Aber ich glaube bei den Bedingungen wirst du es schwer haben einen offenen Laden zu finden. Die werden alle selbst unterwegs sein. Aber hey – nimm doch einfach meins – ich bin für heute fertig“.
 
-Ich werfe einen Blick auf das nagelneue Board, dann einen weiteren zurück zum Strand und denke an mein eigenes niedriges Niveau auf Boards ohne Segel zu surfen. "Shit!" denke ich : "Wie das Board wohl aussieht, wenn ich mit ihm fertig bin?" Ich lehne dann dankend ab und mache mich auf den Weg in den nächsten Ort. Beim zweiten Anlauf treffe ich jemanden, der sich gerade hektisch mit dem Abschließen des eigenen Surfshops beschäftigt.
+Ich werfe einen Blick auf das nagelneue Board, dann einen weiteren zurück zum Strand und denke an mein eigenes niedriges Niveau auf Boards ohne Segel zu surfen. "Shit!" denke ich : "Wie das Board wohl aussieht, wenn ich mit ihm fertig bin?" Ich lehne dankend ab und mache mich auf den Weg in den nächsten Ort. Beim zweiten Anlauf treffe ich jemanden, der sich gerade hektisch mit dem Abschließen des eigenen Surfshops beschäftigt.
 
-Auf die Frage, ob ich bei ihm ein Surf-Board leihen könnte, rennt er nur schnell in den nächsten Schuppen, drückt mir eines in die Hand und springt dann hastig in seinen Geländewagen. Als ich ihm noch nachrufe, was es denn kosten solle, winkt er nur ab und nuschelt etwas von „Komm die nächsten Tage einfach mal wieder vorbei und jetzt schnell aufs Wasser mit dir“ ...
+Auf die Frage, ob ich bei ihm ein Surf-Board leihen könne, rennt er nur schnell in den nächsten Schuppen, drückt mir eines in die Hand und springt dann hastig in seinen Geländewagen. Als ich ihm noch nachrufe, was es denn kosten solle, winkt er nur ab und nuschelt etwas von „Komm die nächsten Tage einfach mal wieder vorbei und jetzt schnell aufs Wasser mit dir“ ...
 
 ![link broken](../../../../../mediaLibrary/pages/info/about/windsurf-stormy-stories-surf-travel-blog-info-about-this-blog-ueber-diesen-blog-WM-100p-DSC04167.JPG)
 
