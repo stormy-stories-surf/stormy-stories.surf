@@ -65,17 +65,19 @@ a travel, windsurf and livestyle blog
 ### v1.7.0 : Release Date TBD
 - [x] posts/2018/balticSea-Ostsee/03_17_dahmeshoeved
 
-### v1.6.0 : Release Date 25.07.2020
+### v1.6.0 : Release Date 01.08.2020
 - [ ] posts/2020/surf-van-bus-campervan-motorhome-expedition-reise-mobil/07-25-opel-blitz
 
-### v1.5.0 : Release Date 11.07.2020
+### v1.5.0 : Release Date 18.07.2020
 - [ ] posts/2017/ireland-irland/11-12-portrane-dublin
 
-### v1.4.0 : Release Date 27.06.2020
+### v1.4.0 : Release Date 04.07.2020
 - [ ] posts/2017/ireland-irland/11-10-magheroarty-beach-donegal-II
 
-### v1.3.0 : Release Date 13.06.2020
-- [ ] posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I
+### v1.3.0 : Release Date 21.06.2020
+- [x] posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I
+
+### STORMY-STORIES.SURF is official online : 13.06.2020
 
 ### v1.2.0 : Release Date 31.05.2020
 - [x] posts/2017/ireland-irland/11-07-spanish-point-cliffs-of-moher-mullaghmore
