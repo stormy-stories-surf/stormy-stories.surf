@@ -4,7 +4,7 @@
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-10-magheroarty-beach-donegal-II/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-10-magheroarty-beach-donegal-II-WM-35p-DSC09884.jpg)
 
-Am nächsten Tag sollte der Wind kommen. Morgens relativ stark und über den Tag sollte es dann abnehmen. Motiviert stellten wir unseren Wecker auf 6 Uhr Morgens und gingen dann nach einem gemütlichen Abend auf dem Sofa und einigen Dosen Cider ab ins Bett. Während der Nacht wachten wir einige Male auf, weil der Wind in den Fenster pfiff und draußen ganz schönen Lärm machte.
+Am nächsten Tag sollte der Wind kommen. Morgens relativ stark und über den Tag sollte es dann abnehmen. Motiviert stellten wir unseren Wecker auf 6 Uhr morgens und gingen dann nach einem gemütlichen Abend auf dem Sofa und einigen Dosen Cider ab ins Bett. Während der Nacht wachten wir einige Male auf, weil der Wind in den Fenster pfiff und draußen ganz schönen Lärm machte.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-10-magheroarty-beach-donegal-II/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-10-magheroarty-beach-donegal-II-WM-35p-DSC09890.jpg)
 
@@ -66,7 +66,7 @@ Nach einer ausgiebigen Analyse, welcher Weg am wenigsten tiefe, schlammige Fütz
 
 Hier bauten wir bei leichtem Sonnenschein unser Material ab und machten uns auf dem Weg zurück zur Wohnung.
 
-Am Abend wollten wir den örtlichen Pub aufsuchen und dort ein bisschen über die vergangenen Tage sinnieren.Doch als wir dann so daran vorbei liefen, sahen wir nimanden außer dem Wirt darin. Eigentlich hatten wir uns auf die gemütliche irische Pub-Athmosphäre gefreut, aber auf Einzelbetreuung hatten wir keine besonders große Lust.
+Am Abend wollten wir den örtlichen Pub aufsuchen und dort ein bisschen über die vergangenen Tage sinnieren. Doch als wir dann so daran vorbei liefen, sahen wir nimanden außer dem Wirt darin. Eigentlich hatten wir uns auf die gemütliche irische Pub-Athmosphäre gefreut, aber auf Einzelbetreuung hatten wir keine besonders große Lust.
 
 Dementsprechend brauchten wir einen neuen Plan. Auf der anderen Seite der Landzunge des Magheroarty Beachs lag eine kleine beleuchtete Stadt.
 
@@ -100,7 +100,7 @@ Bei acht Minuten Belichtungszeit und weiteren acht Minuten, die die Kamera benö
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-10-magheroarty-beach-donegal-II/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-10-magheroarty-beach-donegal-II-WM-35p-DSC00065.jpg)
 
-Doch als das Bild dann endlich im gelungen war, waren wir sehr stolz darauf und traten unseren Fuß-Weg zurück zur Wohnung an.
+Doch als das Bild dann endlich gelungen war, waren wir sehr stolz darauf und traten unseren Fuß-Weg zurück zur Wohnung an.
 (Siehe auch das Titel-Bild dieses Berichts)
 
 Für den nächsten Tag sollte der Wind vermutlich weiter auf On-Shore drehen, so dass für diese Nacht erst einmal Ausschlafen angesagt war.
@@ -109,12 +109,12 @@ Für den nächsten Tag sollte der Wind vermutlich weiter auf On-Shore drehen, so
 
 Wie die Vorhersage bereits angekündigt hatte, drehte der Wind über die Nacht. Windsurfen schien somit bei komplett auflandigem Wind am Magheroarty Beach nicht sonderlich sinnvoll zu sein und für die nächsten Tage war die Vorhersage sehr unklar und änderte sich ständig.
 
-Da wir uns am Tag zuvor ordentlich im Supermarkt eingedeckt hatten, gab es heute unser erstes selbst zubereitetes Irish Breakfast und es schmeckte atemberaubend gut. Wir aßen und berieten uns, wie es weiter gehen sollte.
-
-![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-10-magheroarty-beach-donegal-II/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-10-magheroarty-beach-donegal-II-WM-35p-DSC00067.jpg)
+Da wir uns am Tag zuvor ordentlich im Supermarkt eingedeckt hatten, gab es heute unser erstes selbst zubereitetes Irish Breakfast und es schmeckte atemberaubend gut. Wir aßen und berieten uns, wie es weitergehen sollte.
 
 Für die nächsten Tage sah der Wind im Süden und auch im Osten der Insel deutlich zuverlässiger aus. Der Süden würde zeitlich vermutlich nicht zu schaffen sein, da wir in drei Tagen schon wieder aus Dublin abfliegen mussten. Der Osten sah für uns allerdings auch nicht sonderlich attraktiv aus, weil wir hier vermutlich keine sauberen Atlantik-Wellen mehr zu erwarten hatten.
 
-Nichtsdestotrotz fiel die Entscheidung für die Abreise in Richtung Osten. Mit hoher Wahrscheinlichkeit konnten wir hier noch einmal Windsurfen gehen, was hier im Nord-Westen nur mit sehr viel Glück möglich sein würde. Außerdem hätten wir dann den meisten Weg der Rückreise nach Dublin bereits wieder geschafft und könnten deutlich entspannter wieder zurück reisen.
+![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-10-magheroarty-beach-donegal-II/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-10-magheroarty-beach-donegal-II-WM-35p-DSC00067.jpg)
+
+Nichtsdestotrotz fiel die Entscheidung für die Abreise in Richtung Osten. Mit hoher Wahrscheinlichkeit konnten wir hier noch einmal Windsurfen gehen, was hier im Nord-Westen nur mit sehr viel Glück möglich sein würde. Außerdem hätten wir dann den meisten Weg der Rückreise nach Dublin bereits wieder geschafft und könnten deutlich entspannter wieder zurückreisen.
 
 Somit hieß es Sachen packen und unser süßes kleines Zuhause wieder verlassen. Zum Abschied kamen dann noch einmal alle Nachbars-Kätzchen vorbei und setzten sich direkt vor ein Schlafzimmer-Fenster. Einige Streichel-Einheiten später ging es dann aber doch endlich los. Bis auf ein weiteres "See you soon North-West Ireland" hüpften wir zurück in unseren gigantischen Surf-Panzer und fuhren los.
