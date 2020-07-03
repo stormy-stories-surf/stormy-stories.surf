@@ -66,7 +66,7 @@ Doch als wir dann so daran vorbei liefen, sahen wir nimanden außer dem Wirt dar
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-10-magheroarty-beach-donegal-II/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-10-magheroarty-beach-donegal-II-WM-35p-IMG_20171111_105246633.jpg)
 
 Das konnte eventuell eine gute Möglichkeit sein, um ein paar schöne Langzeit-Belichtungs-Aufnahmen mit der Kamera zu machen. So ging es also wieder zurück zur Wohnung und mit Stativ, Kamera und ein paar Dosen Cider im Gepäck zurück zum Strand.
-Wir versuchten einige verschiedene Perspektiven, doch nichts passte so wirklich zu dem, was wir uns ursprünglich vorgestellt hatten. Dann kamen wir auf die Idee, zwei halb zerfallene Boote, die hier auf der Düne lagen zu fotografieren. Sie machten sich als Motiv vor der beleuchteten Stadt eigentlich sehr gut. Nur leider leuchtete die Stadt so stark herüber, dass die Boote im dunklen kaum zu erkennen waren.
+Wir versuchten einige verschiedene Perspektiven, doch nichts passte so wirklich zu dem, was wir uns ursprünglich vorgestellt hatten. Dann kamen wir auf die Idee, zwei halb zerfallene Boote, die hier auf der Düne lagen zu fotografieren. Sie machten sich als Motiv vor der beleuchteten Stadt eigentlich sehr gut. Nur leider leuchtete die Stadt so stark herüber, dass die Boote im Dunklen kaum zu erkennen waren.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-10-magheroarty-beach-donegal-II/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-10-magheroarty-beach-donegal-II-WM-35p-IMG_20171111_105335266.jpg)
 
