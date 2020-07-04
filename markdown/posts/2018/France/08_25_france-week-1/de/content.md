@@ -1,4 +1,4 @@
-# Frankreich 2018 -  Woche 1
+# Frankreich 2018 –  Ein Roadtrip
 
 Headerfoto 7661
 
@@ -19,7 +19,7 @@ Somit war der Plan für diesen Sommerurlaub schon vor einiger Zeit entstanden: E
 
 Also, Auto vollpacken und – nein, halt stop, erst braucht das nochmal TÜV, der ist nämlich schon einen Monat überfällig. Okay, gut, 2 Tage vor Start konnte das Packen dann doch losgehen. Eine Dachbox ist dann doch noch draufgekommen, irgendwann ist auch ein Bulli leider zu voll. Immerhin konnten die Bretter unterm Bett bleiben.
 
-(Bild von vollgepacktem Bulli?)
+(Bild von vollgepacktem Bulli?) 7684
 
 Eigentlich wollten wir Freitag nach der Arbeit starten und abends noch die ersten Kilometer hinter uns bringen, aber nee, zu müde. ‚Wir können ja auch morgen früh rechtzeitig aufstehen!‘
 Pustekuchen, Wecker verschlafen und doch erst nach dem Mittag los.
