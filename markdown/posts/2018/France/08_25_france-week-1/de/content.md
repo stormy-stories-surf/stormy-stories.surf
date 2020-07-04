@@ -58,7 +58,7 @@ Wir kamen spät in Boulogne an und machten uns erstmal auf die Suche nach Essbar
 
 So ein bisschen Wasser in Sichtweite ist beim Aufwachen einfach Gold wert. Wir haben dann erstmal gemütlich gefrühstückt und festgestellt, dass ein bisschen Reststurm durchaus noch vorhanden war. Leider haben wir schlecht geplant und waren für Westwind an der völlig falschen Stelle, alle näheren Spots lagen auflandig. Aber wenn man schon mal hier ist, kann man sie sich ja zumindest mal genauer anschauen. Wir fuhren von Boulogne aus Richtung Calais.
 
-Wimereux ist eine maritime kleine Stadt, deren Strandpromenade so wirkt, als ob sich sich in der Hochsaison kaum vor Touristen retten könnte. Im September konnte man die anwesenden Menschen jedoch fast an einer Hand abzählen. Um Hochwasser herum läuft das Wasser auf die sehr effektiv gestalteten Wellenbrecher und spritzt amüsierte und quietschende Spielkinder jeden Alters ganz gut nass. Wenn man sich hier ans Wasser setzt und einen Moment innehält, wird man sich der grandiosen Naturgewalt, die Wasser eigentlich ist, auf ganz merkwürdige Art bewusst. Ich liebe es, dann einfach mal zuzuhören.
+Wimereux ist eine maritime kleine Stadt, deren Strandpromenade so wirkt, als ob sich sich in der Hochsaison kaum vor Tourist:innen retten könnte. Im September konnte man die anwesenden Menschen jedoch fast an einer Hand abzählen. Um Hochwasser herum läuft das Wasser auf die sehr effektiv gestalteten Wellenbrecher und spritzt amüsierte und quietschende Spielkinder jeden Alters ganz gut nass. Wenn man sich hier ans Wasser setzt und einen Moment innehält, wird man sich der grandiosen Naturgewalt, die Wasser eigentlich ist, auf ganz merkwürdige Art bewusst. Ich liebe es, dann einfach mal zuzuhören.
 
 <p float="left">
   <img src="../../../../../../mediaLibrary/posts/2018/france/08_25_france-week-1/windsurf-stormy-stories-surf-travel-blog-france-Frankreich-08-25-france-WM-25p-DSC07709.jpg" width="49%" />
@@ -81,7 +81,7 @@ Abgesehen vom mit Material noch deutlich erschwertem Laufweg also wohl eher ein 
 Mit diesen direkten Hinterlassenschaften der deutschen Invasion und des Krieges konfrontiert zu werden, lässt einen irgendwie demütig werden. Dieser von Deutschland verursachte Krieg hat andere Länder und damit so viele Menschen und Kulturen so sehr ausgenutzt und zerstört, dass die Folgen davon bis heute nachwirken, die Bunker sind nur der sichtbare Eisberg des Ganzen. Und da sprechen Idioten bei uns davon, dass man das Ganze doch so langsam mal wieder vergessen sollte und von einem „Vogelschiss“. Einfach unbegreiflich. Wir alle sind dafür verantwortlich, dass so eine Scheiße wirklich nie wieder passiert.
 
 Okay, genug gerantet, zurück ans Wasser! In Ambleteuse war der zu bewältigende Laufweg schon deutlich kürzer und man hat auch hier von oben am Parkplatz eine super Aussicht. Das scheinen auch die Vögel gemerkt zu haben, die haben hier anscheinend eine Vollversammlung abgehalten :)
-Einige Surfer waren in den Wellen auch zu sehen. Unser Plan war ja aber nunmal Windsurfen und der Wind war leider auch hier noch auflandig. Also weiter.
+Einige Surfer:innen waren in den Wellen auch zu sehen. Unser Plan war ja aber nunmal Windsurfen und der Wind war leider auch hier noch auflandig. Also weiter.
 
 <p float="left">
   <img src="../../../../../../mediaLibrary/posts/2018/france/08_25_france-week-1/windsurf-stormy-stories-surf-travel-blog-france-Frankreich-08-25-france-WM-25p-DSC07805.jpg" width="49%" />
@@ -90,7 +90,7 @@ Einige Surfer waren in den Wellen auch zu sehen. Unser Plan war ja aber nunmal W
 
 
 
-Mittlerweile sind wir in Wissant gelandet und haben damit den perfekten Spot für die vorherrschende Windrichtung gefunden: der Wind kam leicht seitlich, der Strand war lang und flach, es waren auch einige Surfer auf dem Wasser zu sehen. Nur leider war mittlerweile deutlich weniger Wind zu spüren, es waren vielleicht noch 10 Knoten. Also beschlossen wir, es für heute gut sein zu lassen und einfach ein wenig zu entspannen. Wir setzten uns an den Strand. Es ist erstaunlich, unter welchen Mengen Adrenalin man in einem solchen Urlaub schnell steht und wie schwierig es ist, davon wirklich wieder runterzukommen. Aber langsam wurden wir ruhiger. Wellengeräusche und ein gutes Buch sind als Hilfen einfach unschlagbar. Auch gutes Essen im Sinne von einem Crêpe mit Ziegenkäse, aus dem der Honig nur so rausläuft, ist natürlich unverzichtbar :)
+Mittlerweile sind wir in Wissant gelandet und haben damit den perfekten Spot für die vorherrschende Windrichtung gefunden: der Wind kam leicht seitlich, der Strand war lang und flach, es waren auch einige Surfer:innen auf dem Wasser zu sehen. Nur leider war mittlerweile deutlich weniger Wind zu spüren, es waren vielleicht noch 10 Knoten. Also beschlossen wir, es für heute gut sein zu lassen und einfach ein wenig zu entspannen. Wir setzten uns an den Strand. Es ist erstaunlich, unter welchen Mengen Adrenalin man in einem solchen Urlaub schnell steht und wie schwierig es ist, davon wirklich wieder runterzukommen. Aber langsam wurden wir ruhiger. Wellengeräusche und ein gutes Buch sind als Hilfen einfach unschlagbar. Auch gutes Essen im Sinne von einem Crêpe mit Ziegenkäse, aus dem der Honig nur so rausläuft, ist natürlich unverzichtbar :)
 
 <p float="left">
   <img src="../../../../../../mediaLibrary/posts/2018/france/08_25_france-week-1/windsurf-stormy-stories-surf-travel-blog-france-Frankreich-08-25-france-WM-25p-DSC07827.jpg" width="33%" />
@@ -104,7 +104,7 @@ Bei näherer Betrachtung ist die ganze Szenerie uns dann doch etwas suspekt: Die
 
 
 
-Nunja, erstmal muss Essen her, also machen wir es uns gemütlich und schmeißen den Campingkocher an. Langsam wird es dunkel. Ein Auto fährt stundenlang auf einer freien Fläche im Kreis. Was zur Hölle haben die hier vor? Zwischenzeitlich schauen drei junge Männer bei uns vorbei und fragen auf französisch nach, ob es uns gut geht. Sehr zuvorkommend, aber auch etwas befremdlich. Es fühlt sich so an, als wären wir Besucher bei jemandem zuhause oder so.
+Nunja, erstmal muss Essen her, also machen wir es uns gemütlich und schmeißen den Campingkocher an. Langsam wird es dunkel. Ein Auto fährt stundenlang auf einer freien Fläche im Kreis. Was zur Hölle haben die hier vor? Zwischenzeitlich schauen drei junge Männer bei uns vorbei und fragen auf französisch nach, ob es uns gut geht. Sehr zuvorkommend, aber auch etwas befremdlich. Es fühlt sich so an, als wären wir Besucher:innen bei jemandem zuhause oder so.
 Das Autorätsel klärt sich später: Da wurde ein Kleinkind im Kreis gefahren, damit es endlich mal einschläft :D Hat nicht funktioniert, als das Auto irgendwann bei einem der Wohnwagen parkt, schreit das Kind. Nun gut.
 Wir beschließen, schlafen zu gehen. Scheint ja alles gut zu sein. Es schleicht sich allerdings schon der Gedanke ein, ob die morgen früh wohl alle weg sind und wir ganz allein hier stehen…
 
@@ -127,8 +127,8 @@ Bei der weiteren Routenplanung ist uns aufgefallen, dass es in der Normandie tat
 
  Da wir im Alten Land, einem der größten Apfelanbaugebiete Deutschlands wohnen, hatten wir eine grobe Vorstellung von Obstplantagen: flach, Felder mit Bewässerung durchsetzt, kleine Bäume in Reih und Glied.
 
-In der Normandie sieht das dann doch recht anders aus: Die Landschaft ist sehr bergig, die Bäume sind deutlich größer als gewohnt, stehen viel weiter auseinander und sind vieles, aber nicht regelmäßig angeordnet. Im ersten Hofladen lernen wir dann auch, dass die Cidrefrüchte auch ganz spezielle Äpfel sind, sehr klein und nicht zum Verzehr gedacht. Eine Verköstigung ist natürlich Pflicht. Es werden vier verschiedene Produkte aus den Früchten hergestellt: Cidre, Calvados und eine Mischung aus beidem namens Pommeau, sowie normaler Apfelsaft. Wir decken uns über die Strecke reichlich ein, allerdings ist der Cidre deutlich teurer als der, den man im Supermarkt bekommt.
-An der Strecke liegt auch das Dorf Beuvron-en-Auge (?), ein wunderschönes kleines Dorf mit sehr alten Gebäuden. Hier merkt man allerdings, dass die Preise für Touristen gemacht werden. Unbedingt vergleichen! Wenn man etwas schaut, findet man auch hier bezahlbare Hersteller. Ansonsten kann man auch einfach etwas durch die Straßen schlendern.
+In der Normandie sieht das dann doch recht anders aus: Die Landschaft ist sehr bergig, die Bäume sind deutlich größer als gewohnt, stehen viel weiter auseinander und sind vieles, aber nicht regelmäßig angeordnet. Im ersten Hofladen lernen wir dann auch, dass die Cidrefrüchte auch ganz spezielle Äpfel sind, sehr klein und nicht zum Verzehr gedacht. Eine Verköstigung ist natürlich Pflicht. Es werden vier verschiedene Produkte aus den Früchten hergestellt: Cidre, Calvados und eine Mischung aus beidem namens Pommeau, sowie normaler Apfelsaft. Wir decken uns über die Strecke reichlich ein, allerdings ist der Cidre deutlich teurer als der, den es im Supermarkt zu kaufen gibt.
+An der Strecke liegt auch das Dorf Beuvron-en-Auge (?), ein wunderschönes kleines Dorf mit sehr alten Gebäuden. Hier merkt man allerdings, dass die Preise für Tourist:innen gemacht werden. Unbedingt vergleichen! Wenn man etwas schaut, findet man auch hier bezahlbare Angebote. Ansonsten kann man auch einfach etwas durch die Straßen schlendern.
 
 <p float="left">
   <img src="../../../../../../mediaLibrary/posts/2018/france/08_25_france-week-1/windsurf-stormy-stories-surf-travel-blog-france-Frankreich-08-25-france-WM-25p-DSC07877.jpg" width="49%" />
@@ -138,7 +138,7 @@ An der Strecke liegt auch das Dorf Beuvron-en-Auge (?), ein wunderschönes klein
 ![link broken](../../../../../../mediaLibrary/posts/2018/france/08_25_france-week-1/windsurf-stormy-stories-surf-travel-blog-france-Frankreich-08-25-france-WM-25p-DSC07897.jpg)
 
 Verdammt, Auto voll! :D Wir fuhren am Abend bis Avranches und verbrachten dort die Nacht. Am nächsten Morgen ging es fix weiter und wir erreichten La Rochelle gegen Mittag. Da für den Tag ein wenig Wind angekündigt war, machten wir uns direkt auf die Suche nach einem guten Wasserzugang. In der Stadt selbst gab es keine wirkliche Möglichkeit, mit einem Auto größer als 2,20m zu parken, was der Bulli mit Dachbox leider ist. Dieses Problem wird uns auf der ganzen Reise immer wieder begegnen, die Parkplätze dicht am Strand haben fast alle eine Höhenbegrenzung.
-Also fahren wir an der Küste entlang weiter südlich. Aytré war knallevoll mit Kitern, das konnte man von weitem schon sehen. Etwas weiter südlich liegt jedoch Châtelaillon-Plage, ein schöner und durch Kiteverbot erstaunlich leerer Strand mit kleinen Wellen. Das sah doch sehr verlockend aus. Ich war noch etwas zögernd, Wellen sind irgendwie nicht so richtig mein Ding, aber Marcel hatte Bock, Also rödelten wir sein Material aus dem Auto und ab aufs Wasser!
+Also fahren wir an der Küste entlang weiter südlich. Aytré war knallevoll mit Kiter:innen, das konnte man von weitem schon sehen. Etwas weiter südlich liegt jedoch Châtelaillon-Plage, ein schöner und durch Kiteverbot erstaunlich leerer Strand mit kleinen Wellen. Das sah doch sehr verlockend aus. Ich war noch etwas zögernd, Wellen sind irgendwie nicht so richtig mein Ding, aber Marcel hatte Bock, Also rödelten wir sein Material aus dem Auto und ab aufs Wasser!
 
 (mehr schreiben zum Surfen? Gedanken Marcel?)
 
@@ -167,7 +167,6 @@ Am nächsten Morgen standen wir ganz gemächlich auf und bauten unseren Frühst�
 
 Wir fuhren rüber auf die Île d'Oléron und beschlossen, uns einen Strand mit anständigen Wellen zu suchen. Der Wind hatte sich mittlerweile vollständig verabschiedet, aber glücklicherweise gibt es da ja auch noch das Wellenreiten und sogar ein passendes Board in unserem Auto. Die Strandsuche erwies sich jedoch deutlich schwieriger als geplant: Sämtliche Parkplätze in Laufweite waren auf eine Höhe von 2,35 m begrenzt. Der Bulli hätte druntergepasst, aber mit der Dachbox obendrauf hatten wir keine Chance. Wir landeten schlussendlich in Les Alassins und parkten an der Straße. Der Fußweg zum Wasser belief sich (ha, Wortspiel!) auf ca. 1 km, dafür erwarteten uns optimale Wellen in Gesellschaft eher wenig Franzosen, die das Sommerende genossen.
 
-(Bilder Strand & Surfen)
 
 ![link broken](../../../../../../mediaLibrary/posts/2018/france/08_25_france-week-1/windsurf-stormy-stories-surf-travel-blog-france-Frankreich-08-25-france-WM-25p-DSC08116.jpg)
 
