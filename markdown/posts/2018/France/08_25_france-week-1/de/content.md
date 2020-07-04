@@ -140,13 +140,12 @@ An der Strecke liegt auch das Dorf Beuvron-en-Auge (?), ein wunderschönes klein
 Verdammt, Auto voll! :D Wir fuhren am Abend bis Avranches und verbrachten dort die Nacht. Am nächsten Morgen ging es fix weiter und wir erreichten La Rochelle gegen Mittag. Da für den Tag ein wenig Wind angekündigt war, machten wir uns direkt auf die Suche nach einem guten Wasserzugang. In der Stadt selbst gab es keine wirkliche Möglichkeit, mit einem Auto größer als 2,20m zu parken, was der Bulli mit Dachbox leider ist. Dieses Problem wird uns auf der ganzen Reise immer wieder begegnen, die Parkplätze dicht am Strand haben fast alle eine Höhenbegrenzung.
 Also fahren wir an der Küste entlang weiter südlich. Aytré war knallevoll mit Kiter:innen, das konnte man von weitem schon sehen. Etwas weiter südlich liegt jedoch Châtelaillon-Plage, ein schöner und durch Kiteverbot erstaunlich leerer Strand mit kleinen Wellen. Das sah doch sehr verlockend aus. Ich war noch etwas zögernd, Wellen sind irgendwie nicht so richtig mein Ding, aber Marcel hatte Bock, Also rödelten wir sein Material aus dem Auto und ab aufs Wasser!
 
-(mehr schreiben zum Surfen? Gedanken Marcel?)
-
 <p float="left">
   <img src="../../../../../../mediaLibrary/posts/2018/france/08_25_france-week-1/windsurf-stormy-stories-surf-travel-blog-france-Frankreich-08-25-france-WM-25p-DSC07913.jpg" width="49%" />
   <img src="../../../../../../mediaLibrary/posts/2018/france/08_25_france-week-1/windsurf-stormy-stories-surf-travel-blog-france-Frankreich-08-25-france-WM-25p-DSC07922.jpg" width="49%" />
 </p>
 
+Auf dem Wasser merkte Marcel, dass die Wellen eigentlich nur auf den ersten Metern waren. Sobald er ein bisschen weiter rein ging, war leider schon nichts mehr von ihnen über, sodass man eigentlich nichts von ihnen hatte außer dass sie einem beim Strandstart und Losfahren nervten. Dazu kam der recht schwache Wind der mit 5.7qm und großem Brett gerade mal so zum angleiten reichte und der auch noch genau auflandig wehte...  Also eigentlich genau ideal, um mir beim Üben auf die Nerven zu gehen ;) Aber immerhin mal wieder etwas Wind und eine super entspannte Session um den Tag abzurunden!
 
 Ein paar Locals waren unterwegs, die einzigen Franzosen, die in dieser Gegend ein klein wenig Englisch verstanden :)
 Ich lag ein wenig am Strand, genoss die Umgebung und spielte mit der Kamera. Gegenlicht durch untergehende Sonne ist einfach eines der besten Stilmittel ever!
