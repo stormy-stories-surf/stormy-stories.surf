@@ -71,8 +71,8 @@ a travel, windsurf and livestyle blog
 ### v1.5.0 : Release Date 18.07.2020
 - [ ] posts/2017/ireland-irland/11-12-portrane-dublin
 
-### v1.4.0 : Release Date 04.07.2020
-- [ ] posts/2017/ireland-irland/11-10-magheroarty-beach-donegal-II
+### v1.4.0 : Release Date 05.07.2020
+- [x] posts/2017/ireland-irland/11-10-magheroarty-beach-donegal-II
 
 ### v1.3.0 : Release Date 21.06.2020
 - [x] posts/2017/ireland-irland/11-09-magheroarty-beach-donegal-I
