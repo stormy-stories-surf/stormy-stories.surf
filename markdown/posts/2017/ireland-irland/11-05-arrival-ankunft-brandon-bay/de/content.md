@@ -113,8 +113,6 @@ Gestern Nacht hatten wir uns auf der Suche nach einer Tankstelle immer wieder ve
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-05-arrival-ankunft-brandon-bay/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-05-arrival-ankunft-brandon-bay-WM-35p-DSC09015.JPG)
 
-
-
 Nach einiger Zeit wachte mein Bruder auf. Wir genossen die Ruhe und die bequemen Betten und unterhielten uns dann darüber, wann wir das letzte mal eine solche Stille erlebt hatten. Im täglichen Arbeitsstress und dem hektischen deutschen Leben schien das schon lange her zu sein. Dann ging es zum Frühstück. Wir bekamen den besten Platz direkt am Fenster und hatten den direkten Blick auf den Storm-Chase-Spot „Hell’s Gate“. Man konnte die Größe der Wellen nicht richtig einschätzen. Aber allzu groß schienen sie nicht zu sein. Da für den heutigen Tag aber auch keinerlei Wind angesagt war, ließen wir uns Zeit und genossen erst einmal Spiegelei und Bacon.
 
 Anschließend erkundeten wir zu Fuß die kleine Landzunge „Maharees“. Der Spot Hell’s Gate zeigte bei Ebbe, dann auch den Grund für seinen vielversprechenden Namen. Hier ragten mannshohe zerklüftete Felsen in den merkwürdigsten Formationen vom Grund nach oben. Einer brutaler als der Nächste.
