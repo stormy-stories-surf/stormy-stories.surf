@@ -1,5 +1,23 @@
 # Die Autoren
 
+# Tanja
+
+TODO
+
+
+| Wohnort:         | Hamburg, Germany      |
+|------------------|-----------------------|
+| Homespot:        | Fehmarn               |
+| Lieblings-Spots: | Gold (Fehmarn, GER)   |
+|                  | Tonel (POR)           |
+|                  | Cadiz Cortadura (ESP) |
+| Hobbys:          | Windsurfen            |
+|                  | Wellenreiten          |
+|                  | Klettern              |
+|                  | Technik               |
+|                  | Bücher                |
+|                  | Musik                 |
+
 ![link broken](../../../../../mediaLibrary/pages/info/authors/windsurf-stormy-stories-surf-travel-blog-info-authors-jana-WM-35p-DSC07571.jpg)
 
 # Jana

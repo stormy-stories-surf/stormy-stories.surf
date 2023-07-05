@@ -11,8 +11,8 @@ Kurz vor Strabane warteten wir die ganze Zeit auf ein Zeichen, an dem wir erkenn
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00100.jpg)
 
-Das nächste Etappenziel lag, einem Schild an der Straße zufolge, garnicht mehr so weit entfernt wie ich vermutet hatte. Bei den nächsten zwei Schildern wunderte ich mich dann jedoch kurz darüber, wie langsam wir voran zu kommen schienen.
-Als wir dann an einer Tanke vorbei fuhren, wurde es mir plötzlich klar.
+Das nächste Etappenziel lag, einem Schild an der Straße zufolge, garnicht mehr so weit entfernt wie ich vermutet hatte. Bei den nächsten zwei Schildern wunderte ich mich dann jedoch kurz darüber, wie langsam wir voranzukommen schienen.
+Als wir dann an einer Tanke vorbeifuhren, wurde es mir plötzlich klar.
 Auch die Preise, die wir hier lesen konnten waren deutlich geringer als noch vor ein paar Tagen. Hier rechnete man in anderen Einheiten... Auch wenn nirgends ein Währungszeichen zu erkennen war, hier ging es offensichtlich um Pfund an der Tankstelle und Meilen auf den Verkehrsschildern.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00104.jpg)
@@ -55,7 +55,7 @@ Nach dem von "Verlustangst" geprägten Eindruck, den wir von diesem Vorort Dubli
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00206.jpg)
 
 Danach ging es dann mit dem Auto in Richtung Süden die Küste entlang. Doch alle Windsurfspots, von denen wir gelesen hatten, boten nur unterirdisch schlechte Bedingungen, so dass wir uns schon fast etwas ärgerten nicht doch länger in Magheroarty geblieben zu sein. Hier wäre die Windrichtung zwar auch sehr unpassend gewesen, aber vielleicht immerhin surfbar.
-Dann jedoch fanden wir am Ende einer Bucht eine Landzunge, die mit ein bisschen Glück nicht mehr in der Windabdeckung liegen sollte. Eine Straße dorthin gab es nicht, denn dieser Küstenabschnitt schien von einen "Mobile-Home Park" im Beschlag genommen worden zu sein. Also liefen wir, bewaffnet mit Windmesser und warmen Jacken, über ein paar Felsen und erreichten schließlich einen netten kleinen Sandstrand. Vom Strand aus ragten weitere Felsen in das Meer und am Horizont wuchs eine große grün überwucherte Insel aus dem Wasser und verlieh dem Ort somit einen gewissen Charme. Hinter uns ging der Strand in kleine wenige Meter hohe Steilklippe auf deren Ende die Mobilheime standen und vermutlich einen traumhaften Blick auf das Meer boten.
+Dann jedoch fanden wir am Ende einer Bucht eine Landzunge, die mit ein bisschen Glück nicht mehr in der Windabdeckung liegen sollte. Eine Straße dorthin gab es nicht, denn dieser Küstenabschnitt schien von einen "Mobile-Home Park" im Beschlag genommen worden zu sein. Also liefen wir, bewaffnet mit Windmesser und warmen Jacken, über ein paar Felsen und erreichten schließlich einen netten kleinen Sandstrand. Vom Strand aus ragten weitere Felsen in das Meer und am Horizont wuchs eine große, grün überwucherte Insel aus dem Wasser und verlieh dem Ort somit einen gewissen Charme. Hinter uns ging der Strand in eine kleine, wenige Meter hohe Steilklippe über, auf deren Ende die Mobilheime standen und deren Fenster vermutlich einen traumhaften Blick auf das Meer boten.
 
 ![link broken](../../../../../../mediaLibrary/posts/2017/ireland-irland/11-12-portrane-dublin/windsurf-stormy-stories-surf-travel-blog-ireland-irland-11-12-portrane-dublin-WM-35p-DSC00246.jpg)
 
