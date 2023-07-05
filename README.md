@@ -230,7 +230,7 @@ To not make this an annoying task we developed a command-line tool which can aut
 As most of the modern cameras create photos with sizes > 5MB and also often > 20MB it is important to reduce the file sizes of all photos. The compression and scaling of the photos can also be done with the command-line tool which is used for watermarking.
 
 ### Prepare your photos (watermarking & scaling / compressing)
-Before you can use your photos for your new blogpost you have to reduze the file size and add a watermark to them.
+Before you can use your photos for your new blogpost you have to reduce the file size and add a watermark to them.
 For this you can use the command-line tool PhotoPrep as follows:
 
 1. Download it, by opening the terminal and typing
