@@ -62,7 +62,7 @@ Ich bin möglichst viel mit Jana und Andre unterwegs um schöne Landschaften, ne
 |                  | Motorrad fahren        |
 |                  | Wellenreiten           |
 |                  | Snowboarden            |
-| Musik:           | Metalcore A-Z
+| Musik:           | Metalcore A-Z          |
 
 ![link broken](../../../../../mediaLibrary/pages/info/authors/windsurf-stormy-stories-surf-travel-blog-info-authors-andre-WM-35p-DSC05582_mod.jpg)
 
@@ -70,7 +70,6 @@ Ich bin möglichst viel mit Jana und Andre unterwegs um schöne Landschaften, ne
 
 Soweit ich mich erinnern kann, hat es mir an der See schon immer gut gefallen. Das raue, nass-kalte und oft stürmische Wetter hat mich dabei eigentlich nie weiter gestört. Auch Sport habe ich schon immer geliebt. Alles was es auszuprobieren gab, wollte ich auch ausprobieren. 2002 standen Marcel und ich das erste Mal in Italien auf einem Windsurf-Board. Das hat mir grundsätzlich schon eine Menge Spaß gemacht. Doch ein paar Jahre später raste ich dann zum ersten Mal vollkommen unkontrolliert und überpowered in voller Gleitfahrt mit dem Windsurf-Board über den Wulfener Hals in Fehmarn. Seit diesem Moment hat das Windsurfen mein Leben nachhaltig verändert. Ich gehöre jetzt zur Gemeinschaft der Süchtigen. Windsurfen ist komplizierter und anspruchsvoller als alles andere, das ich jemals ausprobieren konnte. Investiert man jedoch die Energie und Zeit ein grundlegendes Level zu erreichen, wird man belohnt : ein unvergleichbarer Adrenalin-Rausch, gepaart mit dem Gefühl in völliger Freiheit über das offene Meer zu rauschen, unbegrenzte Möglichkeiten der Steigerung und ein guter Grund die schönsten Orte der Welt zu bereisen und dort die entspanntesten Menschen der Welt kennenzulernen.
 Neben dem Windsurfen ist mein höchstes Gut die Gleichheit aller Menschen - ungeachtet ihrer Herkunft, Religion oder Sexualität.
-Hat man diese Sachen verstanden, hat man auch mich verstanden.
 
 | Wohnort:         | Erlangen, Germany               |
 |------------------|---------------------------------|
