@@ -26,7 +26,7 @@ Eher so Windsurf-Einsteigerin, aber das hält ja niemanden ab! Ist der Meinung, 
 
 | Wohnort:         | Hamburg, Germany      |
 |------------------|-----------------------|
-| Homespot:        | Fehmarn               |
+| Homespot:        | Fehmarn (GER)         |
 | Lieblings-Spots: | Gold (Fehmarn, GER)   |
 |                  | Tonel (POR)           |
 |                  | Cadiz Cortadura (ESP) |

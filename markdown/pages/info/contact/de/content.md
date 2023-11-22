@@ -1,6 +1,6 @@
 # Kontakt
 
-Hast du gerade etwas in deinem Kopf, dass du uns gerne mitteilen möchtest? Vielleicht Fragen, Anregungen, Lob oder Kritik? Hast du vielleicht Lust uns mit deinen Fotos oder Übersetzungen zu unterstützen? Hast du Bock mit uns eine Runde Surfen zu gehen oder am Strand zu entspannen?
+Hast du gerade etwas in deinem Kopf, dass du uns gerne mitteilen möchtest? Vielleicht Fragen, Anregungen, Lob oder Kritik? Hast du vielleicht Lust uns mit deinen Fotos oder Übersetzungen oder wie auch immer zu unterstützen? Hast du Bock mit uns eine Runde Surfen zu gehen oder am Strand zu entspannen?
 
 Egal worum es geht, schreibe uns doch am besten einfach eine Nachricht an info@stormy-stories.surf .
 
