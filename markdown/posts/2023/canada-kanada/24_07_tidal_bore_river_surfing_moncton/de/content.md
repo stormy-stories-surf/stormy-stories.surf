@@ -7,7 +7,7 @@
 *Moncton Tidal Bore (Sony A7 III + Tamron 28-75mm f/2.8 Di III VXD G2; 1/640s bei f8 und 28mm; ISO 100)*
 
 Nach einem rutschigen und sehr sehr matschigen Abstieg stehe ich am Rand des Flusses "Petitcodiac River" und versuche in der gegenüberliegenden Kurve des Flusses die kommende Welle zu erspähen.
-Kurze Zeit später kommt sie dann auch. Am Rand des Ufers sieht man ganz klein Weißwasser gegen die Steine branden und wenn man genau hinhört, hört man auch wie sich die Gezeitenwelle Stück für Stück ihren Weg den Fluss hinauf bahnt. Jetzt heißt es rein ins Wasser und möglichst gut im Fluss positionieren und das Ganze am besten ziemlich schnell. Witziger Weise merke ich jedes Mal wenn ich das erste Weißwasser der Welle sehe, wie mein Puls spürbar steigt und mein Herz das klopfen anfängt.
+Kurze Zeit später kommt sie dann auch. Am Rand des Ufers sieht man ganz klein Weißwasser gegen die Steine branden und wenn man genau hinhört, hört man auch wie sich die Gezeitenwelle Stück für Stück ihren Weg den Fluss hinauf bahnt. Jetzt heißt es rein ins Wasser und möglichst gut im Fluss positionieren und das Ganze am besten ziemlich schnell. Witzigerweise merke ich jedes Mal wenn ich das erste Weißwasser der Welle sehe, wie mein Puls spürbar steigt und mein Herz das klopfen anfängt.
 
 ![link broken](../../../../../../mediaLibrary/posts/2023/canada-kanada/24_07_tidal_bore_river_surfing_moncton/windsurf-stormy-stories-surf-travel-blog-fluss-surfen-river-surfing-rapid-surfing-tidal-bore-gezeiten-surfen-mascaret-bay-of-fundy-moncton-canada-kanada-new-brunswick-panamerica-weltreise-roadtrip-WM-90p-DSC04168_mod.jpg)
 *Moncton Tidal Bore (Sony A7 III + Tamron 28-75mm f/2.8 Di III VXD G2; 1/500s bei f8 und 75mm; ISO 100)*
@@ -16,7 +16,7 @@ Witzig ist das Ganze deswegen, weil die Welle an und für sich weder besonders h
 Die Gezeitenwelle - oder wie die Kanadier sie nennen "Tidal Bore" oder "Mascaret" - entsteht jeden Tag genau zwei mal und zwar genau dann, wenn die auflaufende Flut aus dem Meer in den Fluss strömt und dann als Welle über die eigentlich entgegengesetzte Strömung des Flusses läuft.
 
 ![link broken](../../../../../../mediaLibrary/posts/2023/canada-kanada/24_07_tidal_bore_river_surfing_moncton/windsurf-stormy-stories-surf-travel-blog-fluss-surfen-river-surfing-rapid-surfing-tidal-bore-gezeiten-surfen-mascaret-bay-of-fundy-moncton-canada-kanada-new-brunswick-panamerica-weltreise-roadtrip-WM-90p-DSC04432.jpg)
-*Moncton Tidal Bore (Sony A7 III + Tamron 28-75mm f/2.8 Di III VXD G2; 1/125s bei f7.1 und 69mm; ISO 100)*
+*Wellenvorhersage (Sony A7 III + Tamron 28-75mm f/2.8 Di III VXD G2; 1/125s bei f7.1 und 69mm; ISO 100)*
 
 Das heißt für mich, ich habe ziemlich genau einen Versuch - wenn man die zweite Welle in der Nacht mitrechnet maximal zwei Versuche - am Tag diese Welle zu erwischen. Und genau mit diesem Wissen im Kopf sitze ich nun in der linken Hälfte des Flusses und beobachte wie die kleine Welle Stück für Stück weiter auf mich zurollt. In der Mitte des Flusses ist sie teilweise nur sehr sehr schlecht zu erkennen, aber am Packufer des Flusses sieht man nun wie eine gerade zu perfekte Mini-Barrel auf die Steine bricht.
 Leider ist diese Barrel aber nur sehr niedliche 30-40 Zentimeter hoch und die Chance diese kleine Welle so anzupaddeln, dass sie mich auf die Reise flussabwärts nimmt nur sehr gering.
@@ -46,16 +46,16 @@ Die zwei Tage zuvor war ich jeweils zu langsam. Beim ersten Versuch war die Well
 ![link broken](../../../../../../mediaLibrary/posts/2023/canada-kanada/24_07_tidal_bore_river_surfing_moncton/windsurf-stormy-stories-surf-travel-blog-fluss-surfen-river-surfing-rapid-surfing-tidal-bore-gezeiten-surfen-mascaret-bay-of-fundy-moncton-canada-kanada-new-brunswick-panamerica-weltreise-roadtrip-WM-90p-DSC04359_2_mod.jpg)
 *Moncton Tidal Bore (Sony A7 III + Tamron 28-75mm f/2.8 Di III VXD G2; Bildausschnitt von 1/200s bei f10 und 75mm; ISO 100)*
 
-Zwei weitere Male versuche ich mein Glück an den folgenden Tagen, einmal tagsüber und einmal etwas abenteuerlicher im dunkeln kurz vor Sonnenaufgang um kurz vor Fünf Uhr morgens. Beide Male bin ich zu langsam oder die Welle zu schwach oder beides, aber jedes Mal treibt es mich wieder in Wasser, denn die ganze Atmosphäre, das Warten, die Anspannung und nicht zuletzt die vielen Schaulustigen Touristen am Flussufer, von denen sich selbst Nachts ein paar hier versammeln um das Einlaufen der Welle zu beobachten macht das Ganze einfach zu spannend um es nicht immer wieder zu versuchen.
+Zwei weitere Male versuche ich mein Glück an den folgenden Tagen, einmal tagsüber und einmal etwas abenteuerlicher im Dunkeln kurz vor Sonnenaufgang um kurz vor Fünf Uhr morgens. Beide Male bin ich zu langsam oder die Welle zu schwach oder beides, aber jedes Mal treibt es mich wieder in Wasser, denn die ganze Atmosphäre, das Warten, die Anspannung und nicht zuletzt die vielen Schaulustigen Touristen am Flussufer, von denen sich selbst Nachts ein paar hier versammeln um das Einlaufen der Welle zu beobachten macht das Ganze einfach zu spannend um es nicht immer wieder zu versuchen.
 
 ![link broken](../../../../../../mediaLibrary/posts/2023/canada-kanada/24_07_tidal_bore_river_surfing_moncton/windsurf-stormy-stories-surf-travel-blog-fluss-surfen-river-surfing-rapid-surfing-tidal-bore-gezeiten-surfen-mascaret-bay-of-fundy-moncton-canada-kanada-new-brunswick-panamerica-weltreise-roadtrip-WM-90p-DSC04421.jpg)
-*Moncton Tidal Bore (Sony A7 III + Tamron 28-75mm f/2.8 Di III VXD G2; 1/125s bei f2.8 und 28mm; ISO 12800)*
+*Surfen bei Nacht (Sony A7 III + Tamron 28-75mm f/2.8 Di III VXD G2; 1/125s bei f2.8 und 28mm; ISO 12800)*
 
 Für potenzielle Nachamer sei an dieser Stelle erwähnt, dass das Surfen in Moncton offiziell nicht legal, aber offenbar in den meisten Fällen geduldet wird.
 Informationen über Wellenhöhe und Einlaufzeit findet man an der Touristen-Information in Moncton oder unter https://tides.gc.ca/en/stations/00175 . Wichtig ist immer mindestens 20 Minuten vor der vorhergesagten Zeit startklar am Wasser zu stehen, um evtl. zu frühe Wellen nicht zu verpassen. Den besten Blick auf das Spektakel findet man im sogenannten "Parc du mascaret" / "Bore Parc" in GPS :  46.0895145,-64.7709387
 
 ![link broken](../../../../../../mediaLibrary/posts/2023/canada-kanada/24_07_tidal_bore_river_surfing_moncton/windsurf-stormy-stories-surf-travel-blog-fluss-surfen-river-surfing-rapid-surfing-tidal-bore-gezeiten-surfen-mascaret-bay-of-fundy-moncton-canada-kanada-new-brunswick-panamerica-weltreise-roadtrip-WM-90p-DSC04445.jpg)
-*Moncton Tidal Bore (Sony A7 III + Tamron 28-75mm f/2.8 Di III VXD G2; 1/125s bei f8 und 28mm; ISO 100)*
+*Bore Parc - Eventzone Moncton (Sony A7 III + Tamron 28-75mm f/2.8 Di III VXD G2; 1/125s bei f8 und 28mm; ISO 100)*
 
 ![link broken](../../../../../../mediaLibrary/posts/2023/canada-kanada/24_07_tidal_bore_river_surfing_moncton/windsurf-stormy-stories-surf-travel-blog-fluss-surfen-river-surfing-rapid-surfing-tidal-bore-gezeiten-surfen-mascaret-bay-of-fundy-moncton-canada-kanada-new-brunswick-panamerica-weltreise-roadtrip-WM-90p-DSC04450_mod.jpg)
-*Moncton Tidal Bore (Sony A7 III + Tamron 28-75mm f/2.8 Di III VXD G2; Bildausschnitt von 1/80s bei f5.6 und 28mm; ISO 100)*
+*Bore Parc - Eventzone Moncton (Sony A7 III + Tamron 28-75mm f/2.8 Di III VXD G2; Bildausschnitt von 1/80s bei f5.6 und 28mm; ISO 100)*
